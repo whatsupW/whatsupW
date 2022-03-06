@@ -1,4 +1,4 @@
-#Rzeczywiste straty Rosyjskiej armii od początku inwazji na Ukrainę
+# Rzeczywiste straty Rosyjskiej armii od początku inwazji na Ukrainę
 
 Rosyjska inwazja na Ukrainę trwa jedenastą dobę. Od 24 lutego rosyjskie wojska bombardują strategiczną infrastrukturę wojskową, ale ostrzeliwują też infrastrukturę cywilną, w tym budynki mieszkalne.
 
