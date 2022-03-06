@@ -9,6 +9,6 @@ Z potwierdzonych źródeł od 24 lutego całkowite straty bojowe Rosjan to: pona
 
 По подтвержденным источникам, на 24 февраля общие боевые потери русских составляют: более 11 000 человек. люди; 285 танков; 985 боевых бронированных машин; 109 артиллерийских систем; 50 реактивных систем залпового огня; 21 ЗРК; 44 самолета; 48 вертолетов; 447 боевых машин; два сосуда; 60 танков; четыре беспилотных летательных аппарата. Русские думали, что война продлится несколько дней, и дальнейшего тактического плана у них не было. Война обходится россиянам в 20 миллиардов долларов в день.
 
-[image:4D773EE1-95A5-46A0-B482-2E85BBD929B3-1696-00001FDEB61BEB14/bucza.jpg]
+[image:https://ukraina.dkonto.pl/wp-content/uploads/2022/03/bucza.jpg]
 
 [Rzeczywiste straty Rosyjskiej armii od początku inwazji na Ukrainę](https://ukraina.dkonto.pl/rzeczywiste-straty-rosyjskiej-armii-od-poczatku-inwazji-na-ukraine/)
