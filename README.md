@@ -4,7 +4,13 @@ Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są nicz
 Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
 Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
  
-[![Watch the video](mov1.PNG)](121786596_476651774190333_5852690846042478625_n.mp4)
+[![Watch the video](img/Rosyjscy żołnierze.PNG)](img/Rosyjscy żołnierze.mp4)
+
+[![Watch the video](img/Rosyjscy żołnierze2.PNG)](img/Rosyjscy żołnierze2.mp4)
+
+[![Watch the video](img/Rosyjscy żołnierze3.PNG)](img/Rosyjscy żołnierze3.mp4)
+
+[![Watch the video](img/Rosyjscy żołnierze2.PNG)](img/Rosyjscy żołnierze2.mp4)
 
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
 Tak teraz wygląda przedszkole.
