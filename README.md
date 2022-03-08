@@ -50,11 +50,9 @@ Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. 
 ![ZabiteDzieci3m](https://user-images.githubusercontent.com/101053692/157292599-ffd955a4-2783-46af-8df9-7e2e966451d1.jpg)
 ![Zabitedzieci4m](https://user-images.githubusercontent.com/101053692/157292919-6d53a313-3f60-4e6e-a014-212bdfbf3a61.jpg)
 
-
 Nie bądź obojętny. Wiele osób już wyszło protestować . Białoruś : Mimo że w kraju rządzonym przez Aleksandra Łukaszenkę od lata 2020 roku nieustannie trwają represje, Białorusini znów wyszli na ulice. Tym razem na apel przebywającej w Wilnie liderki opozycji demokratycznej Swiatłany Cichanouskiej tysiące ludzi protestowało w Mińsku przeciwko rosyjskiej agresji na Ukrainie. Ludzie ustawiali się w długie kolejki pod lokalami wyborczymi, ale nie po to, by głosować, lecz by wykrzyczeć „Niet wojnie!" i „Sława Ukrainie!". Staruszkowie, dzieci, matki żołnierzy. Rosjanie i Białorusini mimo represji protestują przeciw wojnie .
 
-
-(https://user-images.githubusercontent.com/101053692/157288240-14c371b7-58fe-4415-8add-46d84820be80.jpg)
+![ProtestBialorusi](https://user-images.githubusercontent.com/101053692/157298696-1df25c0c-60b3-46a7-b596-17ad03361b65.jpg)
 
 
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
