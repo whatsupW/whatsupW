@@ -19,7 +19,13 @@ A tak ich codzienność (kliknij, obejrzyj)
 Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
 
 A co jest pokazywane w rosyjskich mediach, że wyzwalają Ukrainę, że Ukraińcy dziękują za wyzwolenie.
-Wszystko to to nie prawda. Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę.
+Wszystko to to nie prawda. 
+
+Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa
+
+[![Watch the video](https://github.com/whatsupW/whatsupW/blob/3e5e08351dc5418664bfac8b31f1eb639b20dcf5/img/Putin%20oszukuje.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Putin%20oszukuje.mp4?raw=true)
+
+Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę.
 Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy , giną cywile , dzieci.
  
 Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie. 
