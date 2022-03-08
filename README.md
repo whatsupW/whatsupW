@@ -54,8 +54,12 @@ Nie bądź obojętny. Wiele osób już wyszło protestować . Białoruś : Mimo 
 
 ![ProtestBialorusi](https://user-images.githubusercontent.com/101053692/157298696-1df25c0c-60b3-46a7-b596-17ad03361b65.jpg)
 
+To tylko kropla w morzu . Nie tylko Białoruś , ale wiele innych krajów uświadamia rosjanom  jak bardzo błądzi ich prezydent. 
+Nie wychodź sam. Weź kolegę, koleżankę. W jedności siła .  Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Niech będzie dla wolności słowa i demokracji.
+Dołącz do nich
 
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-
-Nie wychodź sam. Wyjdźcie w dużej ilości. Dopiero jak będzie Was dużo będzie w Was siła. Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Wobec wolności słowa i demokracji.  
-Zobacz jak protestują
+![ProtestBerlina_1](https://user-images.githubusercontent.com/101053692/157304083-cc7fd84a-196c-42fe-abb9-f25241d29e12.jpg)
+![ProtestBerlin2_1](https://user-images.githubusercontent.com/101053692/157304107-19330ddd-cda6-4db2-a7a2-b315e70d72be.jpg)
+![ProtestBerlin3_1](https://user-images.githubusercontent.com/101053692/157304127-964a2fc3-2eee-4bb2-a27e-0d9c132c8e4f.jpg)
+![ProtestTajlandia](https://user-images.githubusercontent.com/101053692/157304280-213842a7-8a9e-479f-97fc-78693f309d27.jpg)
+![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
