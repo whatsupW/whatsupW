@@ -45,14 +45,16 @@ Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. 
 ![alt text for screen readers](img/11marcaa.jpg "Text to show on mouseover"). ![alt text for screen readers](img/11marcab.jpg "Text to show on mouseover").
 
 
-![ZabiteDzieci1](https://user-images.githubusercontent.com/101053692/157278573-26916248-fa9c-4fd4-ad0a-7145c34f96ed.jpg)
-![ZabiteDzieci2](https://user-images.githubusercontent.com/101053692/157278625-97aa8ad5-26df-42fb-b364-73065fcd4ebf.jpg)
-![ZabiteDzieci3](https://user-images.githubusercontent.com/101053692/157278648-220c8833-270e-473d-aebb-aad4a63f9be8.jpg)
-![Zabitedzieci4](https://user-images.githubusercontent.com/101053692/157278697-db7ddad6-92c9-4455-b393-c3e5d557fdbb.jpg)
+![ZabiteDzieci1m](https://user-images.githubusercontent.com/101053692/157292576-cc657b19-3bb6-4407-9e33-1fee166545b0.jpg)
+![ZabiteDzieci2m](https://user-images.githubusercontent.com/101053692/157292589-1f31a14a-d1f5-4be7-b00a-a592bdb91a7e.jpg)
+![ZabiteDzieci3m](https://user-images.githubusercontent.com/101053692/157292599-ffd955a4-2783-46af-8df9-7e2e966451d1.jpg)
+![Zabitedzieci4m](https://user-images.githubusercontent.com/101053692/157292919-6d53a313-3f60-4e6e-a014-212bdfbf3a61.jpg)
+
 
 Nie bądź obojętny. Wiele osób już wyszło protestować . Białoruś : Mimo że w kraju rządzonym przez Aleksandra Łukaszenkę od lata 2020 roku nieustannie trwają represje, Białorusini znów wyszli na ulice. Tym razem na apel przebywającej w Wilnie liderki opozycji demokratycznej Swiatłany Cichanouskiej tysiące ludzi protestowało w Mińsku przeciwko rosyjskiej agresji na Ukrainie. Ludzie ustawiali się w długie kolejki pod lokalami wyborczymi, ale nie po to, by głosować, lecz by wykrzyczeć „Niet wojnie!" i „Sława Ukrainie!". Staruszkowie, dzieci, matki żołnierzy. Rosjanie i Białorusini mimo represji protestują przeciw wojnie .
 
-![ProtestBialorusi](https://user-images.githubusercontent.com/101053692/157288240-14c371b7-58fe-4415-8add-46d84820be80.jpg)
+
+(https://user-images.githubusercontent.com/101053692/157288240-14c371b7-58fe-4415-8add-46d84820be80.jpg)
 
 
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
