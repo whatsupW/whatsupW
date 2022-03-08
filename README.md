@@ -39,6 +39,10 @@ W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez
 
 https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33-a760-7cfc4ad32f8e.mp4
 
+Bezbronni mieszkańcy Energodaru blokują drogę do elektrowni jądrowej przed wojskiem państwa terrorystycznego - federacji rosyjskiej. Upd. Strzelanina, wybuchy granat, są ofiary. 
+
+![Bezbronni mieszkańcy Energodaru](https://user-images.githubusercontent.com/101053692/157306189-9346aa46-9941-4e87-8c8d-5e801e31714f.jpg)
+
 Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę. Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy, giną cywile, dzieci. Operacja wojskowa zakończy się mordem cywili.
 
 11 marca 2022 rząd putinowski chce wyłączyć Wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie. 
