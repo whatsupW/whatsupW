@@ -38,3 +38,4 @@ W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez
 A czemu Wy  Rosjanie,czemu Wy nie wychodzicie nie możecie protestować. Bo Putinowi nie podoba się prawda. Dlatego straszy Was 15 latami więzienia. Za prawdę? Obalcie jego dyktaturę. To on kreuje Wam rzeczywistość. 
 
 Nie wychodź sam. Wyjdźcie w dużej ilości. Dopiero jak będzie Was dużo będzie w Was siła. Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Wobec wolności słowa i demokracji.  
+
