@@ -27,8 +27,6 @@ Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa
 
 Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę.
 Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy , giną cywile , dzieci.
- 
-Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie. 
 
 11 marca 2022 rząd putinowski chce wyłączyć wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie.
 ![alt text for screen readers](img/11marcaa.jpg "Text to show on mouseover"). ![alt text for screen readers](img/11marcab.jpg "Text to show on mouseover").
@@ -39,3 +37,4 @@ A czemu Wy  Rosjanie,czemu Wy nie wychodzicie nie możecie protestować. Bo Puti
 
 Nie wychodź sam. Wyjdźcie w dużej ilości. Dopiero jak będzie Was dużo będzie w Was siła. Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Wobec wolności słowa i demokracji.  
 
+Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie. 
