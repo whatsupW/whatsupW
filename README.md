@@ -2,12 +2,12 @@
 
 (pliki są na github aby putin nie zablokował, więc jeśli chcesz obejrzeć filmik musisz kliknąć w obrazek)
 
-Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są niczym w porównaniu do  zmian na Ukrainie.  24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc? 
+Nie da się nie zauważyć zmian które nastąpiły 24 lutego 2022.
+ 24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc?
 
 https://user-images.githubusercontent.com/101053692/157276317-b5d0931f-8d85-4e56-bc26-63110704281a.mp4
 
-Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
-Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
+Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatne. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
 
 https://user-images.githubusercontent.com/101053692/157274497-ef5f4a57-e541-40d0-a11f-3042efe006da.mp4
 
@@ -15,8 +15,13 @@ https://user-images.githubusercontent.com/101053692/157274650-30ae144b-f06b-4edb
 
 https://user-images.githubusercontent.com/101053692/157274841-6458865b-f4d1-4e8d-9f68-6d682c6cc9d8.mp4
 
-Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
-Tak teraz wygląda przedszkole.
+Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługańsku wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego Putin potrafił zrobić propagandę, pokazując, że to wojska Ukraińskie ostrzeliwują własny  szpital. Tak teraz wyglądają przedszkola.
+Prezydent Zelenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
+
+Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa
+Cały świat się zbuntował , a co widzi rosyjski obywatel? To co podaje na tacy Putin.
+W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg Nie boją się umrzeć. Bo czym, że jest śmierć wobec NIEPODLEGŁOŚCI KRAJU.
+Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę. Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy , giną cywile , dzieci.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
 
@@ -34,14 +39,12 @@ Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa
 https://user-images.githubusercontent.com/101053692/157275611-4d25d722-0b55-4dd0-926d-8430f61d7b53.mp4
 
 Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę.
-Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy , giną cywile , dzieci.
+Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy, giną cywile, dzieci.
 
 11 marca 2022 rząd putinowski chce wyłączyć wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie.
 ![alt text for screen readers](img/11marcaa.jpg "Text to show on mouseover"). ![alt text for screen readers](img/11marcab.jpg "Text to show on mouseover").
 
 W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg  Nie boją się umrzeć. Bo czym, że jest śmierć wobec NIEPODLEGŁOŚCI KRAJU. 
-
-
 
 https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33-a760-7cfc4ad32f8e.mp4
 
@@ -58,15 +61,9 @@ Zobacz jak protestują
 
 https://user-images.githubusercontent.com/101053692/157275897-94d69526-c089-41fa-9a9a-4395dd7e8498.mp4
 
-
-
 https://user-images.githubusercontent.com/101053692/157275939-5bf29dfd-1b80-441f-9e72-5c59321e3b4f.mp4
 
-
-
 https://user-images.githubusercontent.com/101053692/157276004-5712f80b-3886-41eb-bb50-830402b755f7.mp4
-
-
 
 Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie. 
 
