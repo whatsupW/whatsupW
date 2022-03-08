@@ -16,8 +16,10 @@ Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowa
 Tak teraz wygląda przedszkole.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
-A tak ich codzienność
-[![Watch the video](https://github.com/whatsupW/whatsupW/blob/3630db3103525f24853ea89ea2d3ac8f060d6c07/img/Dzieci4.mp4)](https://github.com/whatsupW/whatsupW/blob/3630db3103525f24853ea89ea2d3ac8f060d6c07/img/Dzieci4.mp4)
+
+A tak ich codzienność (kliknij, obejrzyj)
+
+[![Watch the video](img/Dzieci4.PNG)](https://github.com/whatsupW/whatsupW/blob/3630db3103525f24853ea89ea2d3ac8f060d6c07/img/Dzieci4.mp4)
 
 Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
 
