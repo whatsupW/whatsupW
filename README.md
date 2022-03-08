@@ -7,14 +7,14 @@ Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są nicz
 Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
 Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
  
-[![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.mp4) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze2.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze2.mp4) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze3.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze3.mp4) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze4.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze4.mp4)
+[![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.mp4?raw=true) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze2.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze2.mp4?raw=true) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze3.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze3.mp4?raw=true) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze4.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze4.mp4?raw=true)
 
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
 Tak teraz wygląda przedszkole.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
 A tak ich codzienność (kliknij, obejrzyj)
-[![Watch the video](img/Dzieci4.PNG)](https://github.com/whatsupW/whatsupW/blob/3630db3103525f24853ea89ea2d3ac8f060d6c07/img/Dzieci4.mp4)
+[![Watch the video](img/Dzieci4.PNG)](https://github.com/whatsupW/whatsupW/blob/3630db3103525f24853ea89ea2d3ac8f060d6c07/img/Dzieci4.mp4?raw=true)
 
 Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
 
