@@ -1,6 +1,6 @@
 # Drodzy Rosjanie.
 
-(pliki są na github aby putin nie zablokował, więc jeśli chcesz obejrzeć filmik musisz kliknąć w obrazek a potem w "View raw")
+(pliki są na github aby putin nie zablokował, więc jeśli chcesz obejrzeć filmik musisz kliknąć w obrazek)
 
 Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są niczym w porównaniu do  zmian na Ukrainie.  24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc? 
 
