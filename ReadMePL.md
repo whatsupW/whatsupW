@@ -13,11 +13,14 @@ https://user-images.githubusercontent.com/101053692/157274650-30ae144b-f06b-4edb
 
 https://user-images.githubusercontent.com/101053692/157274841-6458865b-f4d1-4e8d-9f68-6d682c6cc9d8.mp4
 
+https://user-images.githubusercontent.com/101053692/157339516-9ef94054-8034-4f50-8895-34d814e5991f.mp4
+
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. 
 
 W Ługańsku wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego Putin potrafił zrobić propagandę, pokazując, że to wojska Ukraińskie ostrzeliwują własny  szpital. Tak teraz wyglądają przedszkola.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
+![Charkow_m](https://user-images.githubusercontent.com/101053692/157339968-fea53f4b-5525-48ac-9ad2-58a880944f61.jpg)
 
 A tak wygląda codzienność.
 
