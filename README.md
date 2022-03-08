@@ -61,6 +61,8 @@ Dołącz do nich
 ![ProtestBerlin2_1](https://user-images.githubusercontent.com/101053692/157304107-19330ddd-cda6-4db2-a7a2-b315e70d72be.jpg)
 ![ProtestBerlina_1](https://user-images.githubusercontent.com/101053692/157304083-cc7fd84a-196c-42fe-abb9-f25241d29e12.jpg)
 ![ProtestBerlin3_1](https://user-images.githubusercontent.com/101053692/157304127-964a2fc3-2eee-4bb2-a27e-0d9c132c8e4f.jpg)
-
-![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
+![ProtestAustralia_1](https://user-images.githubusercontent.com/101053692/157305268-fb36f2ee-9cfd-4c14-b1d0-9c809d6a7ddd.jpg)
 ![ProtestTajlandia_1](https://user-images.githubusercontent.com/101053692/157304648-96cab81c-abd1-4539-aec5-6528c4d12e13.jpg)
+![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
+
+
