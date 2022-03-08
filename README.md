@@ -18,9 +18,7 @@ https://user-images.githubusercontent.com/101053692/157274841-6458865b-f4d1-4e8d
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługańsku wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego Putin potrafił zrobić propagandę, pokazując, że to wojska Ukraińskie ostrzeliwują własny  szpital. Tak teraz wyglądają przedszkola.
 Prezydent Zelenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
 
-Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa
-Cały świat się zbuntował , a co widzi rosyjski obywatel? To co podaje na tacy Putin.
-W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg Nie boją się umrzeć. Bo czym, że jest śmierć wobec NIEPODLEGŁOŚCI KRAJU.
+
 Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę. Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy , giną cywile , dzieci.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
@@ -35,6 +33,8 @@ A co jest pokazywane w rosyjskich mediach, że wyzwalają Ukrainę, że Ukraińc
 Wszystko to to nie prawda. 
 
 Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa
+Cały świat się zbuntował , a co widzi rosyjski obywatel? To co podaje na tacy Putin.
+W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg Nie boją się umrzeć. Bo czym, że jest śmierć wobec NIEPODLEGŁOŚCI KRAJU.
 
 https://user-images.githubusercontent.com/101053692/157275611-4d25d722-0b55-4dd0-926d-8430f61d7b53.mp4
 
