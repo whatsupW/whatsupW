@@ -3,8 +3,10 @@ Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są nicz
 
 Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
  Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
+ 
+[![Watch the video](/images/content/4279611/690cc1ce1c97ed83c883846f84451ad3.png)](http://youtu.be/vt5fpE0bzSY)
 
-Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. Raz??????????????GDZIEW wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
+Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
 
 Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się 
 ewakuować. Zgadnij co zrobił putin. Kazał strzelać do cywili.
@@ -17,7 +19,7 @@ Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie.
 
 11 marca 2022 rząd putinowski chce wyłączyć wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie.
 
-Wjakiejmiejscowośi ?????          W Charkowie cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg  Nie boją się umrzeć. Bo czym, że jest śmierć wobec wolności. 
+W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg  Nie boją się umrzeć. Bo czym, że jest śmierć wobec wolności. 
 
 A czemu Wy  Rosjanie,czemu Wy nie wychodzicie nie możecie protestować. Bo Putinowi nie podoba się prawda. Dlatego straszy Was 15 latami więzienia. Za prawdę? Obalcie jego dyktaturę. To on kreuje Wam rzeczywistość. 
 
