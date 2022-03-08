@@ -12,6 +12,8 @@ Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwicze
 
 [![Watch the video](img/Rosyjscy żołnierze2.PNG)](img/Rosyjscy żołnierze2.mp4)
 
+[![Watch the video](/images/content/4279611/690cc1ce1c97ed83c883846f84451ad3.png)](http://youtu.be/vt5fpE0bzSY)
+
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
 Tak teraz wygląda przedszkole.
 ![Tak teraz wygląda przedszkole.](https://scontent-waw1-1.xx.fbcdn.net/v/t39.30808-6/274984263_402801308369549_489957222853231143_n.jpg?_nc_cat=109&ccb=1-5&_nc_sid=8bfeb9&_nc_ohc=RRuT2eagJZ4AX-enKl2&_nc_ht=scontent-waw1-1.xx&oh=00_AT8mFCy0sWyHxY79H2DwSXSWTeKo4w-NJEAsSLj0O-tR2Q&oe=622B57AD "Tak teraz wygląda przedszkole.").
