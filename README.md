@@ -58,8 +58,9 @@ To tylko kropla w morzu . Nie tylko Białoruś , ale wiele innych krajów uświa
 Nie wychodź sam. Weź kolegę, koleżankę. W jedności siła .  Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Niech będzie dla wolności słowa i demokracji.
 Dołącz do nich
 
-![ProtestBerlina_1](https://user-images.githubusercontent.com/101053692/157304083-cc7fd84a-196c-42fe-abb9-f25241d29e12.jpg)
 ![ProtestBerlin2_1](https://user-images.githubusercontent.com/101053692/157304107-19330ddd-cda6-4db2-a7a2-b315e70d72be.jpg)
+![ProtestBerlina_1](https://user-images.githubusercontent.com/101053692/157304083-cc7fd84a-196c-42fe-abb9-f25241d29e12.jpg)
 ![ProtestBerlin3_1](https://user-images.githubusercontent.com/101053692/157304127-964a2fc3-2eee-4bb2-a27e-0d9c132c8e4f.jpg)
-![ProtestTajlandia](https://user-images.githubusercontent.com/101053692/157304280-213842a7-8a9e-479f-97fc-78693f309d27.jpg)
+
 ![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
+![ProtestTajlandia_1](https://user-images.githubusercontent.com/101053692/157304648-96cab81c-abd1-4539-aec5-6528c4d12e13.jpg)
