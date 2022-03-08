@@ -91,3 +91,11 @@ Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie.
 
 https://user-images.githubusercontent.com/101053692/157276137-3d3f905c-d484-4db4-bf64-4b511f137862.mp4
 
+Operacja wojskowa zakończyła się mordem cywili . Giną niewinni , giną dzieci
+![ZabiteDzieci1](https://user-images.githubusercontent.com/101053692/157278573-26916248-fa9c-4fd4-ad0a-7145c34f96ed.jpg)
+![ZabiteDzieci2](https://user-images.githubusercontent.com/101053692/157278625-97aa8ad5-26df-42fb-b364-73065fcd4ebf.jpg)
+![ZabiteDzieci3](https://user-images.githubusercontent.com/101053692/157278648-220c8833-270e-473d-aebb-aad4a63f9be8.jpg)
+![Zabitedzieci4](https://user-images.githubusercontent.com/101053692/157278697-db7ddad6-92c9-4455-b393-c3e5d557fdbb.jpg)
+
+Nie bądź obojętny. Wiele osób już wyszło protestować . Białoruś : Mimo że w kraju rządzonym przez Aleksandra Łukaszenkę od lata 2020 roku nieustannie trwają represje, Białorusini znów wyszli na ulice. Tym razem na apel przebywającej w Wilnie liderki opozycji demokratycznej Swiatłany Cichanouskiej tysiące ludzi protestowało w Mińsku przeciwko rosyjskiej agresji na Ukrainie. Ludzie ustawiali się w długie kolejki pod lokalami wyborczymi, ale nie po to, by głosować, lecz by wykrzyczeć „Niet wojnie!" i „Sława Ukrainie!". Staruszkowie, dzieci, matki żołnierzy. Rosjanie i Białorusini mimo represji protestują przeciw wojnie .
+![ProtestBialorusi](https://user-images.githubusercontent.com/101053692/157278897-26ce82e4-9faa-41c6-9d2f-0591b9d6881e.jpg)
