@@ -1,12 +1,24 @@
-# Rzeczywiste straty Rosyjskiej armii od początku inwazji na Ukrainę
-Rosyjska inwazja na Ukrainę trwa jedenastą dobę. Od 24 lutego rosyjskie wojska bombardują strategiczną infrastrukturę wojskową, ale ostrzeliwują też infrastrukturę cywilną, w tym budynki mieszkalne.
+# Drodzy Rosjanie.
+Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są niczym w porównaniu do  zmian na Ukrainie.  24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc? 
 
-Z potwierdzonych źródeł od 24 lutego całkowite straty bojowe Rosjan to: ponad 11 tys. ludzi; 285 czołgów; 985 bojowych pojazdów opancerzonych; 109 systemów artyleryjskich; 50 wieloprowadnicowych wyrzutni rakietowych; 21 systemów obrony przeciwlotniczej; 44 samolotów; 48 helikopterów; 447 pojazdów wojskowych; dwie jednostki pływające; 60 cystern; cztery samoloty bezzałogowe. Rosjanie myśleli, że wojna potrwa parę dni i nie mają oni dalszego taktycznego planu. Wojna kosztuje rosjanów aż ok. 20 miliardów dolarów dziennie.
+Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
+ Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
 
-**Реальные потери российской армии с начала вторжения в Украину**
-Российское вторжение в Украину длится одиннадцатый день. С 24 февраля российские войска бомбят стратегическую военную инфраструктуру, а также обстреливают гражданскую инфраструктуру, в том числе жилые дома.
+Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. Raz??????????????GDZIEW wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
 
-По подтвержденным источникам, на 24 февраля общие боевые потери русских составляют: более 11 000 человек. люди; 285 танков; 985 боевых бронированных машин; 109 артиллерийских систем; 50 реактивных систем залпового огня; 21 ЗРК; 44 самолета; 48 вертолетов; 447 боевых машин; два сосуда; 60 танков; четыре беспилотных летательных аппарата. Русские думали, что война продлится несколько дней, и дальнейшего тактического плана у них не было. Война обходится россиянам в 20 миллиардов долларов в день.
+Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się 
+ewakuować. Zgadnij co zrobił putin. Kazał strzelać do cywili.
 
-![straty](https://ukraina.dkonto.pl/wp-content/uploads/2022/03/bucza.jpg "Straty").
+A co jest pokazywane w rosyjskich mediach, że wyzwalają Ukrainę, że Ukraińcy dziękują za wyzwolenie.
+Wszystko to to nie prawda. Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę.
+Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy , giną cywile , dzieci.
+ 
+Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie. 
 
+11 marca 2022 rząd putinowski chce wyłączyć wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie.
+
+Wjakiejmiejscowośi ?????          W Charkowie cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg  Nie boją się umrzeć. Bo czym, że jest śmierć wobec wolności. 
+
+A czemu Wy  Rosjanie,czemu Wy nie wychodzicie nie możecie protestować. Bo Putinowi nie podoba się prawda. Dlatego straszy Was 15 latami więzienia. Za prawdę? Obalcie jego dyktaturę. To on kreuje Wam rzeczywistość. 
+
+Nie wychodź sam. Wyjdźcie w dużej ilości. Dopiero jak będzie Was dużo będzie w Was siła. Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Wobec wolności słowa i demokracji.  
