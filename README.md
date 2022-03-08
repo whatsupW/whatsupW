@@ -4,41 +4,24 @@
 
 Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są niczym w porównaniu do  zmian na Ukrainie.  24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc? 
 
-
 https://user-images.githubusercontent.com/101053692/157276317-b5d0931f-8d85-4e56-bc26-63110704281a.mp4
-
 
 Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
 Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
- 
-
-
-
-
 
 https://user-images.githubusercontent.com/101053692/157274497-ef5f4a57-e541-40d0-a11f-3042efe006da.mp4
 
-
-
-
-
 https://user-images.githubusercontent.com/101053692/157274650-30ae144b-f06b-4edb-81ea-895e71bf032c.mp4
 
-
-
 https://user-images.githubusercontent.com/101053692/157274841-6458865b-f4d1-4e8d-9f68-6d682c6cc9d8.mp4
-
-
-
-
 
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
 Tak teraz wygląda przedszkole.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
 
-
 A tak wygląda codzienność
+
 https://user-images.githubusercontent.com/101053692/157275206-78767f9b-e028-45bf-8df1-bd2b0d916018.mp4
 
 Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
