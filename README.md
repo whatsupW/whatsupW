@@ -7,8 +7,6 @@ Pewnie zauważyliście zmiany, które dokonały się od 24 lutego 2022. Są nicz
 Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. 
 Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatnie. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
  
- github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.mp4
- 
 [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze.mp4?raw=true) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze2.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze2.mp4?raw=true) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze3.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze3.mp4?raw=true) [![Watch the video](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze4.PNG)](https://github.com/whatsupW/whatsupW/blob/main/img/Rosyjscy%20%C5%BCo%C5%82nierze4.mp4?raw=true)
 
 Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. W Ługański wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego putin potrafił zrobić propagandę. Pokazując, że to wojska Ukraińskie ostrzeliwują szpital. 
@@ -34,6 +32,15 @@ Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, 
 ![alt text for screen readers](img/11marcaa.jpg "Text to show on mouseover"). ![alt text for screen readers](img/11marcab.jpg "Text to show on mouseover").
 
 W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg  Nie boją się umrzeć. Bo czym, że jest śmierć wobec wolności. 
+
+
+
+https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33-a760-7cfc4ad32f8e.mp4
+
+Strzelają do cywili. A to jest już ludobójstwem
+
+https://user-images.githubusercontent.com/101053692/157272039-e0959213-169a-4998-b7e1-5f7feed03931.mp4
+
 
 A czemu Wy  Rosjanie,czemu Wy nie wychodzicie nie możecie protestować. Bo Putinowi nie podoba się prawda. Dlatego straszy Was 15 latami więzienia. Za prawdę? Obalcie jego dyktaturę. To on kreuje Wam rzeczywistość. 
 
