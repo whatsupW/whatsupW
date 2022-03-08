@@ -16,8 +16,7 @@ Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowa
 Tak teraz wygląda przedszkole.
 ![Tak teraz wygląda przedszkole.](https://scontent-waw1-1.xx.fbcdn.net/v/t39.30808-6/274984263_402801308369549_489957222853231143_n.jpg?_nc_cat=109&ccb=1-5&_nc_sid=8bfeb9&_nc_ohc=RRuT2eagJZ4AX-enKl2&_nc_ht=scontent-waw1-1.xx&oh=00_AT8mFCy0sWyHxY79H2DwSXSWTeKo4w-NJEAsSLj0O-tR2Q&oe=622B57AD "Tak teraz wygląda przedszkole.").
 
-Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się 
-ewakuować. Zgadnij co zrobił putin. Kazał strzelać do cywili.
+Prezydent Zalenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili.
 
 A co jest pokazywane w rosyjskich mediach, że wyzwalają Ukrainę, że Ukraińcy dziękują za wyzwolenie.
 Wszystko to to nie prawda. Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę.
@@ -26,6 +25,7 @@ Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, 
 Dlatego Europa, Świat zjednoczyli się by pomóc Ukrainie. 
 
 11 marca 2022 rząd putinowski chce wyłączyć wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie.
+
 
 W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg  Nie boją się umrzeć. Bo czym, że jest śmierć wobec wolności. 
 
