@@ -1,11 +1,11 @@
-# Drodzy Rosjanie.
+# Dear Russians.
 
-Nie da się nie zauważyć zmian które nastąpiły 24 lutego 2022.
- 24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc?
+It is impossible not to notice the changes that took place on February 24, 2022. 
+On February 24, 2022 at 3.45 am, Vladimir Putin gave the order to carry out a "special military operation in Ukraine". According to the president of Russia, he had to help the citizens of Ukraine and protect them. Attacking in the morning when everyone was asleep, without notice. Does this movement remind you of something? Didn't Hitler act like that on September 1, 1939 in Poland? Isn't this movement Nazi? Is this what the help should look like?
  
 ![IkonaWojny](https://user-images.githubusercontent.com/101053692/157290547-343ddb72-6409-4db2-bf36-9d71675e3f38.jpg)
 
-Wybuchy słychać było nad ranem na obrzeżach Kijowa, w Charkowie, ale także m.in. w obwodzie lwowskim na zachodzie Ukrainy. Wkrótce jednak okazało się że atakowana jest zarówno infrastruktura wojskowa, jak i obiekty cywilne. Wysłał zwerbowanych młodych żołnierzy, którym wmówił, iż są to ćwiczenia. Wysłał ich jak mięso armatne. Bez doświadczenia, prowiantu i starymi czołgami. Młodzi Rosjanie dopiero na miejscu uświadomili sobie, że to oni napadają.
+The explosions were heard in the morning on the outskirts of Kiev, in Kharkiv, but also, among others, in the Lviv region in the west of Ukraine. However, it soon turned out that both military infrastructure and civilian facilities were under attack. He sent recruited young soldiers who he made convinced that these were exercises. He sent them like cannon fodder. No experience, no provisions or old tanks. It was only when the young Russians realized that they were attacking.
 
 https://user-images.githubusercontent.com/101053692/157274497-ef5f4a57-e541-40d0-a11f-3042efe006da.mp4
 
@@ -15,40 +15,38 @@ https://user-images.githubusercontent.com/101053692/157274841-6458865b-f4d1-4e8d
 
 https://user-images.githubusercontent.com/101053692/157339516-9ef94054-8034-4f50-8895-34d814e5991f.mp4
 
-Wojska Putina bombardują miasta. Nie patrząc na ludność cywilną. Bombardowane są przedszkola, szkoły a nawet szpitale. 
+Putin's troops are bombing cities. Not looking at the civilian population. Kindergartens, schools and even hospitals are bombed. 
 
-W Ługańsku wojska rosyjskie zajęły szpital, który próbowali odbić Ukraińcy. Nawet z tego Putin potrafił zrobić propagandę, pokazując, że to wojska Ukraińskie ostrzeliwują własny  szpital. Tak teraz wyglądają przedszkola.
+In Lugansk, the Russian army seized the hospital that the Ukrainians were trying to recover. Putin was able to make propaganda out of this, showing that it was the Ukrainian troops firing at their own hospital. This is what kindergartens look like now.
 
 ![Tak teraz wygląda przedszkole.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Tak teraz wygląda przedszkole.").
 ![Charkow_m](https://user-images.githubusercontent.com/101053692/157339968-fea53f4b-5525-48ac-9ad2-58a880944f61.jpg)
 
-A tak wygląda codzienność.
+And this is what everyday life looks like.
 
 https://user-images.githubusercontent.com/101053692/157275206-78767f9b-e028-45bf-8df1-bd2b0d916018.mp4
 
-Prezydent Zelenski prosił o korytarze humanitarne i zawieszenie broni, by ludność mogła się ewakuować. Zgadnij co zrobił putin? Kazał strzelać do cywili. A to jest już ludobójstwo.
+President Zelensky asked for humanitarian corridors and a ceasefire so that the population could evacuate. Guess what putin did? He ordered civilians to be shot. This is genocide.
 
 https://user-images.githubusercontent.com/101053692/157272039-e0959213-169a-4998-b7e1-5f7feed03931.mp4 
 
-A co jest pokazywane w rosyjskich mediach, że wyzwalają Ukrainę, że Ukraińcy dziękują za wyzwolenie.
-Wszystko to to nie prawda. 
+And what is shown in the Russian media that they are liberating Ukraine, that the Ukrainians are thanking for the liberation. All of this is not true.
 
-Zobacz jak spreparowali film by pokazać, że niby Putin się nie ukrywa.
+See how they prepared the film to show that Putin is not hiding.
 
 https://user-images.githubusercontent.com/101053692/157275611-4d25d722-0b55-4dd0-926d-8430f61d7b53.mp4
 
-Cały świat się zbuntował, a co widzi rosyjski obywatel? To co podaje na tacy Putin.
-W Mariupolu cywile wychodzą i stają na przeciw nadjeżdżającym czołgom. Bez broni są wstanie zatrzymać czołg! Nie boją się umrzeć. Bo czym, że jest śmierć wobec NIEPODLEGŁOŚCI KRAJU.
+The whole world rebelled, and what does the Russian citizen see? What Putin serves on a tray. In Mariupol, civilians come out and face the oncoming tanks. Without weapons, they can stop a tank! They are not afraid to die. For what, that is death in the face of the INDEPENDENCE OF THE COUNTRY.
 
 https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33-a760-7cfc4ad32f8e.mp4
 
-Bezbronni mieszkańcy Energodaru blokują drogę do elektrowni jądrowej przed wojskiem państwa terrorystycznego - federacji rosyjskiej. Upd. Strzelanina, wybuchy granat, są ofiary. 
+The defenseless inhabitants of Enerhodar block the road to the nuclear power plant from the army of the terrorist state - the Russian federation. Upd. Shootings, grenade blasts, there are casualties. 
 
 ![Bezbronni mieszkańcy Energodaru](https://user-images.githubusercontent.com/101053692/157306189-9346aa46-9941-4e87-8c8d-5e801e31714f.jpg)
 
-Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. Czemu są blokowane strony internetowe, które pokazują prawdę. Niestety prezydent Rosji mocno kontroluje co zostanie wyemitowane i przekazane, ludzie żyją w niewiedzy. Ty , rosyjski obywatelu, żyjesz w niewiedzy. Władimir Putin wcale nie ocala obywateli Ukrainy, giną cywile, dzieci. Operacja wojskowa zakończy się mordem cywili.
+You are being fed propaganda movies. Why there is no independent media. Why are websites that show the truth blocked. Unfortunately, the president of Russia has a lot of control over what will be broadcast and communicated, people are ignorant. You, Russian citizen, live in ignorance. Vladimir Putin does not save Ukrainian citizens, civilians and children are dying. The military operation will end in the murder of civilians.
 
-11 marca 2022 rząd putinowski chce wyłączyć Wam globalny internet. Od tego dnia już całkiem będzie kontrolował wasze życie. 
+On March 11, 2022, the Putin government wants to turn off the global internet for you. From that day on, he will completely control your life.
 ![alt text for screen readers](img/11marcaa.jpg "Text to show on mouseover"). ![alt text for screen readers](img/11marcab.jpg "Text to show on mouseover").
 
 
@@ -57,13 +55,12 @@ Jesteście karmieni propagandowymi filmami. Czemu nie ma niezależnych mediów. 
 ![ZabiteDzieci3m](https://user-images.githubusercontent.com/101053692/157292599-ffd955a4-2783-46af-8df9-7e2e966451d1.jpg)
 ![Zabitedzieci4m](https://user-images.githubusercontent.com/101053692/157292919-6d53a313-3f60-4e6e-a014-212bdfbf3a61.jpg)
 
-Nie bądź obojętny. Wiele osób już wyszło protestować . Białoruś : Mimo że w kraju rządzonym przez Aleksandra Łukaszenkę od lata 2020 roku nieustannie trwają represje, Białorusini znów wyszli na ulice. Tym razem na apel przebywającej w Wilnie liderki opozycji demokratycznej Swiatłany Cichanouskiej tysiące ludzi protestowało w Mińsku przeciwko rosyjskiej agresji na Ukrainie. Ludzie ustawiali się w długie kolejki pod lokalami wyborczymi, ale nie po to, by głosować, lecz by wykrzyczeć „Niet wojnie!" i „Sława Ukrainie!". Staruszkowie, dzieci, matki żołnierzy. Rosjanie i Białorusini mimo represji protestują przeciw wojnie .
+Do not be indifferent. Many people have already gone out to protest. Belarus: Despite the constant repression in the country ruled by Alexander Lukashenka since the summer of 2020, Belarusians have taken to the streets again. This time, at the appeal of the leader of the democratic opposition, Swiatlana Cichanouska, who was staying in Vilnius, thousands of people protested in Minsk against the Russian aggression in Ukraine. People lined up in long lines in front of the polling stations, not to vote, but to shout "Niet war!" And "Glory to Ukraine!". Old men, children, mothers of soldiers. Russians and Belarusians are protesting against the war despite repression.
 
 ![ProtestBialorusi](https://user-images.githubusercontent.com/101053692/157298696-1df25c0c-60b3-46a7-b596-17ad03361b65.jpg)
 
-To tylko kropla w morzu . Nie tylko Białoruś , ale wiele innych krajów uświadamia rosjanom  jak bardzo błądzi ich prezydent. 
-Nie wychodź sam. Weź kolegę, koleżankę. W jedności siła .  Wtedy zacznijcie protestować. Niech ten protest nie będzie tylko sprzeciwem wobec Wojny na Ukrainie ale też sprzeciwem wobec rządów Putina. Niech będzie dla wolności słowa i demokracji.
-Dołącz do nich
+It's just a drop in the ocean. Not only Belarus, but many other countries make Russians realize how wrong their president is. Don't go out alone. Take a friend, friend. There is strength in unity. Then start protesting. Let this protest not only be an objection to the war in Ukraine, but also an objection to Putin's rule. Let it be for freedom of speech and democracy. 
+Join them
 
 ![ProtestBerlin2_1](https://user-images.githubusercontent.com/101053692/157304107-19330ddd-cda6-4db2-a7a2-b315e70d72be.jpg)
 ![ProtestBerlina_1](https://user-images.githubusercontent.com/101053692/157304083-cc7fd84a-196c-42fe-abb9-f25241d29e12.jpg)
