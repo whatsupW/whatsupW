@@ -1,4 +1,6 @@
 # Dear Russians.
+(You have family, friends in Russia. Please send them an article in Russian - link - https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md to the telegram application, e-mail. You can also send them to Russian classifieds websites, sales, such as e.g. avito.ru)
+
 
 It is impossible not to notice the changes that took place on February 24, 2022. 
 On February 24, 2022 at 3.45 am, Vladimir Putin gave the order to carry out a "special military operation in Ukraine". According to the president of Russia, he had to help the citizens of Ukraine and protect them. Attacking in the morning when everyone was asleep, without notice. Does this movement remind you of something? Didn't Hitler act like that on September 1, 1939 in Poland? Isn't this movement Nazi? Is this what the help should look like?
