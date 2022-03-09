@@ -1,7 +1,7 @@
 # Drodzy Rosjanie.
 
 (Masz rodzinę, znajomych w Rosji. Prosimy prześlij artykuł im w języku rosyjskim - link - https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md#%D1%83%D0%B2%D0%B0%D0%B6%D0%B0%D0%B5%D0%BC%D1%8B%D0%B5-%D1%80%D0%BE%D1%81%D1%81%D0%B8%D1%8F%D0%BD%D0%B5
-na aplikację telegram, maila. Można też na rosyjskie serwisy ogłoszeniowe, sprzedażowe tak jak avito.ru)
+na aplikację telegram, maila. Można też na rosyjskie serwisy ogłoszeniowe, sprzedażowe takie jak avito.ru, sbermegamarket.ru, aliexpress.ru, ozon.ru, wildberries.ru, market.yandex.ru)
 
 Nie da się nie zauważyć zmian które nastąpiły 24 lutego 2022.
  24 lutego 2022 o 3.45 Władimir Putin wydał rozkaz przeprowadzenia "specjalnej operacji wojskowej na terenie Ukrainy". Jak twierdzi prezydent Rosji musiał pomóc obywatelom Ukrainy, chronić ich. Napadając nad ranem, gdy wszyscy spali, bez uprzedzenia. Czy ten ruch ci czegoś nie przypomina? Czy tak nie postąpił Hitler 1 września 1939 w Polsce? Czy ten ruch nie jest nazistowski? Czy tak ma wyglądać pomoc?
