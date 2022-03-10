@@ -72,4 +72,10 @@ https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33
 ![ProtestTajlandia_1](https://user-images.githubusercontent.com/101053692/157304648-96cab81c-abd1-4539-aec5-6528c4d12e13.jpg)
 ![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
 
+9 марта 2022 года
+Выступление Президента Украины после взрыва детской больницы в Мариуполе 9 марта 2022 года.
+
+https://user-images.githubusercontent.com/101053692/157619988-c63e3bbb-50ff-499b-8e4e-6c72d12e91f2.mp4
+
+https://user-images.githubusercontent.com/101053692/157620346-f1861156-13f4-48c3-a2b8-ded971004a4f.mp4v
 
