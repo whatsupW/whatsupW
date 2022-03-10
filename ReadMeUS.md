@@ -71,4 +71,8 @@ Join them
 ![ProtestTajlandia_1](https://user-images.githubusercontent.com/101053692/157304648-96cab81c-abd1-4539-aec5-6528c4d12e13.jpg)
 ![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
 
+Speech by the President of Ukraine after the bombing of the Children's Hospital in Mariupol on March 9, 2022.
 
+https://user-images.githubusercontent.com/101053692/157630355-704bc5e1-6f38-44b8-a20f-028107f2fed5.mp4
+
+https://user-images.githubusercontent.com/101053692/157630467-338b169d-c370-47b8-9844-02d47eb8679b.mp4
