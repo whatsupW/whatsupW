@@ -1,4 +1,4 @@
-# Demilitaryzacja i denazyfikacja Ukrainy czyli specjalna militarna operacja putina.
+# Demilitaryzacja i denazyfikacja Ukrainy, czyli specjalna militarna operacja putina.
 
 1 Putin wyzwala Ukrainę faszystów.
 
