@@ -1,4 +1,5 @@
-# Samozwańcze Republiki.
+# Demilitaryzacja i denazyfikacja Ukrainy czyli specjalna militarna operacja putina.
+
 1 Putin wyzwala Ukrainę faszystów.
 
 2 Wyzwolenie Ukrainy od nazistów i narkomanów. To główne założenia Putina. 
@@ -11,12 +12,23 @@ Spójrz jak wygląda Ukraina po jego pomocy!
 ![4](https://user-images.githubusercontent.com/101053692/158266527-93e2f67c-8764-4eb6-a63d-949527289bba.png)
 
 
-A jak wygląda gospodarka w tym momencie. Czy on się tym przejmuje?
+A jak wygląda gospodarka w tym momencie. Czy on się tym przejmuje? Sankcje są nałożone przez jego atak.
 Nie dość, że nie ma Mcdonalda i Coli, a inne firmy uciekają, to odcina Was od Internetu, byście nie wiedzieli co się dzieje. Pozwalasz mu na to?
-A co z żołnierzami, którzy zginęli w Ukrainie? Nawet nie chce zabrać ich ciał i godnie pochować. Woli w tym czasie dalej atakować cywili. Nie pozwala na korytarze humanitarne. Czy tak wygląda wyzwalanie?
+Patrze jaką willę ma jego córka.
 
-Niewyobrażalne jest , że dzisiaj cały naród będzie płacić za grzechy i chore ambicje jednego człowieka. Przez Putina cały świat się od Was odwróci. Czy tak postępuje władca, któremu zależy na swoim narodzie? 
-Putin stwarza historyjkę, w którą sam wierzy i chce do niej was Przekonać. W czym zawiniły nienarodzone dzieci w szpitalu w Mariupolu żeby zrzucić na nich bombę? Jak bardzo trzeba być szalonym, by zabijać dzieci, które dopiero co otworzyły oczy albo jeszcze nienarodzone (szpital dziecięcy w Mariupolu)?
+A on gdzie? Gdzieś schowany na syberii? Siedzi i decyduje o atakach na cywilacu ukraińskich.
+A co z żołnierzami, którzy zginęli w Ukrainie? Nawet nie chce zabrać ich ciał i godnie pochować. Woli w tym czasie dalej atakować cywili. 
+
+Wiesz co grozi żołnierzom gdy nie chcą walczyć? Żołnierzom którzy są na miejscu i widzą to okropieństwo. Karze ich rostrzeliwać.
+
+Nie pozwala na korytarze humanitarne. W momencie gdy mówi o zawieszeniu broni i cywile wychodzą by dojść w bezpieczne miejsce... Rozpoczyna bombardownie i ostrzeliwanie.
+
+Czy tak wygląda wyzwalanie?
+
+Niewyobrażalne jest, że dzisiaj cały naród będzie płacić za grzechy i chore ambicje jednego człowieka. Przez Putina cały świat się od Was odwróci. Czy tak postępuje władca, któremu zależy na swoim narodzie? 
+Putin stwarza historyjkę, w którą sam wierzy i chce do niej Was przekonać. 
+
+W czym zawiniły nienarodzone dzieci w szpitalu w Mariupolu żeby zrzucić na nich bombę? Jak bardzo trzeba być szalonym, by zabijać dzieci, które dopiero co otworzyły oczy albo jeszcze nienarodzone (szpital dziecięcy w Mariupolu)?
 
 Nie Chcesz protestować przeciwko wojnie? To protestuj przeciwko temu, co się dzieje z gospodarką!
 
@@ -29,3 +41,6 @@ Pamiętajcie, że kto widzi i nie potępia, Ten daje przyzwolenie.
 
 
 Putin nie przyzna się, że zrobił błąd napadając na Ukrainę. Dlatego też robi wszystko by wygrać. Kosztem waszym i następnych pokoleń.
+
+Samozwańcze Republiki to mu było mało
+
