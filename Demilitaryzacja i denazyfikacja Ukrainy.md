@@ -1,4 +1,5 @@
-# Demilitaryzacja i denazyfikacja Ukrainy, czyli specjalna militarna operacja putina.
+# Demilitaryzacja i denazyfikacja Ukrainy, 
+czyli specjalna militarna operacja putina.
 
 Jak wygląda „specjalna operacja” Putina mająca na celu „wyzwolenie Ukraińców”?
 Putin wyzwala Ukrainę faszystów.
