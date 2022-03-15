@@ -23,7 +23,7 @@ W czwartek 24 lutego prezydent Rosji Władimir Putin rozpoczął zmasowaną inwa
 
 Do 4 marca od początku wojny na Ukrainie zginęło 351 cywilów, a 707 zostało rannych. Do 5 marca  32 dzieci zmarło, a 70 zostało rannych. 
 Kharkiv.mp4
-
+https://github.com/whatsupW/whatsupW/blob/main/img/1/Kharkiv.mp4?raw=true
 ![]()
 
 A jak wygląda gospodarka w tym momencie. Czy on się tym przejmuje? Sankcje są nałożone przez jego atak.
