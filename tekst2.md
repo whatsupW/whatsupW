@@ -22,9 +22,13 @@ W czwartek 24 lutego prezydent Rosji Władimir Putin rozpoczął zmasowaną inwa
 ![Żytomierz, liceum n25](https://github.com/whatsupW/whatsupW/blob/main/img/1/4%20Kijowska%20wie%C5%BCa%20telewizyjna.png?raw=true)
 
 Do 4 marca od początku wojny na Ukrainie zginęło 351 cywilów, a 707 zostało rannych. Do 5 marca  32 dzieci zmarło, a 70 zostało rannych. 
-Kharkiv.mp4
+
+Kharkiv.mp4 
+
+
 https://github.com/whatsupW/whatsupW/blob/main/img/1/Kharkiv.mp4?raw=true
-![]()
+
+![](https://github.com/whatsupW/whatsupW/blob/main/img/1/Kharkiv.mp4?raw=true)
 
 A jak wygląda gospodarka w tym momencie. Czy on się tym przejmuje? Sankcje są nałożone przez jego atak.
 Nie dość, że nie ma Mcdonalda i Coli, a inne firmy uciekają, to odcina Was od Internetu, byście nie wiedzieli co się dzieje. Pozwalasz mu na to?
