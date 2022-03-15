@@ -5,8 +5,10 @@
 2 Wyzwolenie Ukrainy od nazistów i narkomanów. To główne założenia Putina. 
 
 Spójrz jak wygląda Ukraina po jego pomocy!
+1 Kijów. Dom przy alei Lobanovsky 6th.png
 
-![1](https://user-images.githubusercontent.com/101053692/158266326-4d3d3e1a-7e5e-4829-9370-aeb0c79caf14.png)
+
+![Charkowska specjalistyczna szkoła №134](https://github.com/whatsupW/whatsupW/blob/main/img/1/2%20Charkowska%20specjalistyczna%20szko%C5%82a%20%E2%84%96134.png?raw=true)
 ![2](https://user-images.githubusercontent.com/101053692/158266445-33240435-cd61-4ca8-8dd6-9825a2da31f9.png)
 ![3](https://user-images.githubusercontent.com/101053692/158266501-4e613b7c-d5b0-4778-9656-08812d095010.png)
 ![4](https://user-images.githubusercontent.com/101053692/158266527-93e2f67c-8764-4eb6-a63d-949527289bba.png)
