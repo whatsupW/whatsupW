@@ -67,7 +67,9 @@ https://github.com/whatsupW/whatsupW/blob/main/Dear_Russians.md
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
 English version
+
 [<Dear_Russians.pdf>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansUS.pdf>)
 
 Russian version
+
 [<Dear_Russians.pdf>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansRU.pdf>)
