@@ -70,6 +70,8 @@ English version
 
 [<LetterUS.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>)
 
-Russian version
+Polska wersja
+[<ListPL.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMePL.md>)
 
+Russian version
 [<LetterRU.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md>)
