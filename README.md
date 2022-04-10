@@ -66,9 +66,8 @@ https://github.com/whatsupW/whatsupW/blob/main/Dear_Russians.md
 ### By clicking below you will go to the content - Here you will find texts, photos and videos to copy.
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
-English version
-
-[<LetterUS.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>)
+English version 
+[<LetterUS.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>) 
 
 Polska wersja
 [<ListPL.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMePL.md>)
