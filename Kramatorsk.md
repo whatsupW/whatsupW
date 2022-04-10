@@ -27,16 +27,29 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Rakieta.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/162612903-c9a04509-3c69-4b3f-afea-cb163f1f34f3.mp4
 
-## It is worth noting that on the eve of one of the Russian TG channels, the inhabitants of Kramatorska, Słowiańska and the neighboring towns were advised not to evacuate by train. In addition, Russian TG channels wrote about arrivals at the Kramatorsk station and indicated that the occupiers "are working on the concentration of the Armed Forces of Ukraine."
-Warto zauważyć, że w przededniu jednego z rosyjskich kanałów TG mieszkańcom Kramatorska, Słowiańska i sąsiednich miejscowości odradzano ewakuację koleją. Ponadto rosyjskie kanały TG pisały o przyjazdach na dworzec Kramatorsk i wskazywały, że okupanci „pracują nad koncentracją Sił Zbrojnych Ukrainy”. 
+## It is worth noting that on the eve of one of the Russian TG channels, the inhabitants of Kramatorska, Słowiańska and the neighboring towns were advised not to evacuate by train. 
+Warto zauważyć, że w przededniu jednego z rosyjskich kanałów TG mieszkańcom Kramatorska, Słowiańska i sąsiednich miejscowości odradzano ewakuację koleją. 
 
+![Ewakuacja.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Ewakuaja.jpg)
+
+## In addition, Russian TG channels wrote about arrivals at the Kramatorsk station and indicated that the occupiers "are working on the concentration of the Armed Forces of Ukraine."
+Ponadto rosyjskie kanały TG pisały o przyjazdach na dworzec Kramatorsk i wskazywały, że okupanci „pracują nad koncentracją Sił Zbrojnych Ukrainy”. 
 
 ![Koncentracja.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Koncentracja.jpg)
+![Koncentracja2.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Koncentracja2.jpg)
 
-Te posty zostały później usunięte. Co wydarzyło się wcześniej: Rankiem 8 kwietnia rosyjscy najeźdźcy zaatakowali rakietami dworzec kolejowy w Kramatorsku , zabijając co najmniej 30 osób i raniąc ponad 100. Według Służby Bezpieczeństwa Ukrainy znanych jest 39 zabitych, w tym  4 dzieci . Setki osób zostaje rannych. Prokuratura Generalna poinformowała, że ​​w momencie ataku rakietowego wroga na stację kolejową w Kramatorsku 8 kwietnia przebywało tam 4 tys. cywilów.
+## These posts were later deleted.
+## What happened before: On the morning of April 8, Russian invaders attacked the train station in Kramatorsk with rockets, killing at least 30 people and injuring over 100. According to the Ukrainian Security Service, 39 people are known, including 4 children. Hundreds of people are injured. The Prosecutor General's Office informed that at the time of the enemy rocket attack on the railway station in Kramatorsk on April 8, there were 4,000 people there. civilians.
 
-Na reszcie rakiety widoczny napis w języku rosyjskim „dla dzieci”.
+Te posty zostały później usunięte.
+Co wydarzyło się wcześniej: Rankiem 8 kwietnia rosyjscy najeźdźcy zaatakowali rakietami dworzec kolejowy w Kramatorsku , zabijając co najmniej 30 osób i raniąc ponad 100. Według Służby Bezpieczeństwa Ukrainy znanych jest 39 zabitych, w tym  4 dzieci . Setki osób zostaje rannych. Prokuratura Generalna poinformowała, że ​​w momencie ataku rakietowego wroga na stację kolejową w Kramatorsku 8 kwietnia przebywało tam 4 tys. cywilów.
 
 
-
+## The Russians explained on television that it was the Ukrainians who fired the bombs because Russia does not have these missiles. And here is the proof of their lie. During the parade in May 2021, TOCZKA
+Rosjanie w telewizji tłumaczyli się, że to Ukraińcy strzelili te bomby bo Rosja nie posiada tych rakiet. A o to dowód na ich kłamstwo
 Podczas parady maj 2021, TOCZKA
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/ParadaTOCZKA.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/162613352-3be57757-ec98-4f7e-9baf-7fe8d7505340.mp4
+
