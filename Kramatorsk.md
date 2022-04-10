@@ -12,3 +12,10 @@ Source - Źródło
 ![Telegram-wystrza%C5%82.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Telegram-wystrza%C5%82.jpg)
 
 ![Telegram-wystrza%C5%822.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Telegram-wystrza%C5%822.jpg)
+
+## A minute later, a video with the launch of two rockets in Shakhtyorsk was already published in public.
+Minutę później nagranie z wystrzeleniem dwóch rakiet w Szachtiorsku zostało już opublikowane publicznie.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Movie-Kramatorst.mp4?raw=true
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Movie-Kramatorst.mp4 
