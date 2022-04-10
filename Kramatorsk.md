@@ -18,4 +18,5 @@ Minutę później nagranie z wystrzeleniem dwóch rakiet w Szachtiorsku zostało
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Movie-Kramatorst.mp4?raw=true
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Movie-Kramatorst.mp4 
+https://user-images.githubusercontent.com/101053692/162611956-c8a5cc3d-aef5-461f-928a-34b88fb3c0a7.mp4
+
