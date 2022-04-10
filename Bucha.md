@@ -13,17 +13,14 @@ Jedna kolumna przeszła z Katiużanki do wsi Babyntsi i Borodyanki, inny udał s
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha2.mp4?raw=true
 
+https://user-images.githubusercontent.com/101053692/162633383-49984622-f9ac-4874-9069-28c821b54dd2.mp4
 
 
 
 
 
-
-
-
-Uwaga drastyczne - nie przesyłaj przez Whatsup, bo możesz zostać zablokowany.Lepiej wyślij link. 
-
-Związanym cywilom wypalono oczy, strzelano w głowę.
+## Note drastic - do not send via Whatsup or you may get blocked, better send the link of the entire page. Bound civilians had their eyes burned out and shots in the head.
+Uwaga drastyczne - nie przesyłaj przez Whatsup, bo możesz zostać zablokowany.Lepiej wyślij link.  Związanym cywilom wypalono oczy, strzelano w głowę.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_drastyczne.mp4?raw=true
 
