@@ -9,6 +9,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Film1.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/162614518-284e046f-7809-481d-a95a-9f6ba042b6d5.mp4
 
+## TEXT Do you think soldiers don't attack civilian buildings? That they only shoot soldiers. You wouldn't want to be there right now. It is impossible to live there.
+Uważasz, że zołnierze nie atakują budynków cywilnych? Że strzelają tylko w żołnierzy. Nie chciał byś tam teraz być. Tam się nie da mieszkać.
+Как вы думаете, солдаты не нападают на гражданские здания? Что стреляют только в солдат. Вы бы не хотели быть там прямо сейчас. Жить там невозможно.
+
+
 ## The Russians say they are not attacking civilian buildings. Here is the destroyed city of BORODYANKA.
 Rosjanie mówią, że nie atakują budynków cywilnych. O to zniszczone miasto BORODYANKA.  
 
