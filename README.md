@@ -10,12 +10,12 @@ Przed uderzeniem na Kramatorsk zarejestrowano wystrzelenie rakiety z okupowanego
 ### You can submit the link - Copy it
 Możesz przesłać link - Skopiuj go
 
-https://github.com/whatsupW/whatsupW/blob/9bac305dec86de6193eeef3a29c61f84d37846e3/Kramatorsk.md
+https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md
 
 ### By clicking below you will go to the content - Here you will find texts, photos and videos to copy.
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
-[<Kramatorsk.md>](<https://github.com/whatsupW/whatsupW/blob/9bac305dec86de6193eeef3a29c61f84d37846e3/Kramatorsk.md>)
+[<Kramatorsk.md>](<https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md>)
 
 # Videos showing the war on Ukraine - Called by a hutin a special military action - Rusy Peace
 Filmiki pokazujące Wojnę na Ukrainę - Przez hutina nazwaną specjalną akcją wojskową - Ruski Mir
