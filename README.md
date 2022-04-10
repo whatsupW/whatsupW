@@ -1,4 +1,6 @@
-# Texts to the Russians,
+# Texts to Russians that you can copy and send eg Whatsup wa.1920.in as a response to their propaganda. You do not know Russian, use the translator. And here's the evidence.
+
+Teksty do Rosjan, które możesz skopiować i wysłać np Whatsup wa.1920.in jako odpowiedź na ich propagandę. Nie znasz rosyjskiego używaj translatora. A tu znajdziesz dowody.
 
 ## Before the strike on Kramatorsk, missiles were launched from the occupied Shakhtyorsk
 Przed uderzeniem na Kramatorsk zarejestrowano wystrzelenie rakiety z okupowanego Szachtiorska
