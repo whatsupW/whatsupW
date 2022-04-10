@@ -46,6 +46,13 @@ https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495
 
 [<Gostomel.md>](<https://github.com/whatsupW/whatsupW/blob/main/Gostomel.md>)
 
+# Before and after photos
+Zdjęcia przed i po
+
+![Charkowska specjalistyczna szkoła №134](https://github.com/whatsupW/whatsupW/blob/main/img/1/2%20Charkowska%20specjalistyczna%20szko%C5%82a%20%E2%84%96134.png?raw=true)
+
+https://github.com/whatsupW/whatsupW/blob/main/Zdj%C4%99cia_przed_i_po.md
+
 # First text - Letter to Russia of March 2022
 Pierwszy tekst - List do Rosjan z marca 2022
 
@@ -54,9 +61,9 @@ Pierwszy tekst - List do Rosjan z marca 2022
 ### You can submit the link - Copy it
 Możesz przesłać link - Skopiuj go
 
-https://github.com/whatsupW/whatsupW/blob/c9c046a9f19f27cec057ab000e87a675d6d704a5/%D0%A3%D0%B2%D0%B0%D0%B6%D0%B0%D0%B5%D0%BC%D1%8B%D0%B5%20%D1%80%D0%BE%D1%81%D1%81%D0%B8%D1%8F%D0%BD%D0%B5.md
+https://github.com/whatsupW/whatsupW/blob/main/Dear%20Russians.md
 
 ### By clicking below you will go to the content - Here you will find texts, photos and videos to copy.
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
-[<Уважаемые россияне.md>](<https://github.com/whatsupW/whatsupW/blob/c9c046a9f19f27cec057ab000e87a675d6d704a5/%D0%A3%D0%B2%D0%B0%D0%B6%D0%B0%D0%B5%D0%BC%D1%8B%D0%B5%20%D1%80%D0%BE%D1%81%D1%81%D0%B8%D1%8F%D0%BD%D0%B5.md>)
+[<Уважаемые россияне.md>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20Russians.md>)
