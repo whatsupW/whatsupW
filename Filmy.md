@@ -25,5 +25,7 @@ https://user-images.githubusercontent.com/101053692/162616349-663ec85a-b6d5-41b3
 ## Destruction of an entire village after large bombs
 Zniszczenia całej wioski po dużych bombach
 
+https://github.com/whatsupW/whatsupW/blob/main/img/3/zniszczenia.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/3/zniszczenia.mp4?raw=true
 
-sd
+
