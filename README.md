@@ -17,6 +17,15 @@ Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty,
 
 [<Kramatorsk.md>](<https://github.com/whatsupW/whatsupW/blob/9bac305dec86de6193eeef3a29c61f84d37846e3/Kramatorsk.md>)
 
+# Videos showing the war on Ukraine - Called by a hutin a special military action - Rusy Peace
+Filmiki pokazujące Wojnę na Ukrainę - Przez hutina nazwaną specjalną akcją wojskową - Ruski Mir
+
+[<Filmy.md>](https://github.com/whatsupW/whatsupW/blob/04a81c71483877d77095f1c5c2dce940e59e800c/Filmy.md)
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Film1.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/162614518-284e046f-7809-481d-a95a-9f6ba042b6d5.mp4
+
 # First text - Letter to Russia of March 2022
 Pierwszy tekst - List do Rosjan z marca 2022
 
