@@ -29,7 +29,13 @@ https://user-images.githubusercontent.com/101053692/162614518-284e046f-7809-481d
 # Cities
 Miasta
 
+## Bucha
+
 [<Bucha.md>](<https://github.com/whatsupW/whatsupW/blob/main/Bucha.md>)
+
+![Bucha1.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha1.jpg?raw=true)
+
+## Gostomel
 
 [<Gostomel.md>](<https://github.com/whatsupW/whatsupW/blob/main/Gostomel.md>)
 
