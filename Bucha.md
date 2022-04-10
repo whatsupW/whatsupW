@@ -1,3 +1,24 @@
+# War crimes and killings of civilians. As a home chat, he recorded atrocities in Bucha
+Zbrodnie wojenne i zabójstwa ludności cywilnej. Na pogawędce domowej nagrał okrucieństwa w Bucha
+
+Source - Źródło
+[<BBC Bucha>](<https://www.bbc.com/ukrainian/features-60980624/>)
+[<BBC Bucha>](<https://www.bbc.com/ukrainian/features-60747432/>)
+  
+## "The main reason for the situation in which Bucha and Irpin found themselves was the betrayal of another" brotherly nation "- the Belarusians." It was from the territory of Belarus to the north of the Kiev region on the first day of the invasion on February 24 that the Russian troops began to enter, aiming at the capital of Ukraine. “It's simple - the route through Chernobyl is the shortest, the distance to the outskirts of Kiev is approx. 70 km. The Russians took Chernobyl, then Ivankov, from which two columns marched to the capital, ”explains the terrorist.One column went from Katyažanka to the village of Babyntsi and Borodyanki, another went to the city of Dymer and tried to go to Vyshgorod, but in the Demidowo region, Ukrainian troops blew up a pontoon crossing of the Russians across the Irpin River. Therefore, these forces of the Russian army decided to move towards Bucza. So in Bucza several routes of Russians converged, who tried to break through to the capital of Ukraine in vain. The first shots began on March 3. The drama lasted until April 1. When the Russian troops fled the city.
+  
+ "Głównym powodem sytuacji, w której znaleźli się Bucha i Irpin, była zdrada innego" braterskiego narodu " - Białorusinów". To właśnie z terytorium Białorusi na północ od obwodu kijowskiego pierwszego dnia inwazji 24 lutego zaczęły wkraczać wojska rosyjskie, celując w stolicę Ukrainy. „To proste – trasa przez Czarnobyl jest najkrótsza, odległość do obrzeży Kijowa to ok. 70 km. Rosjanie zajęli Czarnobyl, potem Iwanków, z którego do stolicy maszerowały dwie kolumny” – tłumaczy terrorysta.
+Jedna kolumna przeszła z Katiużanki do wsi Babyntsi i Borodyanki, inny udał się do miasta Dymer i próbował przejść do Wyszhorodu, ale w rejonie Demidowa wojska ukraińskie wysadziły pontonową przeprawę Rosjan przez rzekę Irpin. Dlatego te siły armii rosyjskiej zdecydowały się ruszyć w kierunku Buczy. Tak więc w Buczy zbiegało się kilka szlaków Rosjan, którzy bezskutecznie próbowali przebić się do stolicy Ukrainy.
+  Od 3 marca zaczęły się pierwsze strzały. Dramat trwał do 1 kwietnia. Kiedy towojska rosyjskie uciekły z miasta.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha2.mp4?raw=true
+
+
+
+
+
+
+
 
 
 Uwaga drastyczne - nie przesyłaj przez Whatsup, bo możesz zostać zablokowany.Lepiej wyślij link. 
