@@ -17,8 +17,10 @@ Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty,
 
 [<Kramatorsk.md>](<https://github.com/whatsupW/whatsupW/blob/9bac305dec86de6193eeef3a29c61f84d37846e3/Kramatorsk.md>)
 
-## First text - Letter to Russia of March 2022
+# First text - Letter to Russia of March 2022
 Pierwszy tekst - List do Rosjan z marca 2022
+
+![IkonaWojny](https://user-images.githubusercontent.com/101053692/157290547-343ddb72-6409-4db2-bf36-9d71675e3f38.jpg)
 
 ### You can submit the link - Copy it
 Możesz przesłać link - Skopiuj go
