@@ -20,3 +20,23 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Movie-Kramatorst.mp4?raw=tr
 
 https://user-images.githubusercontent.com/101053692/162611956-c8a5cc3d-aef5-461f-928a-34b88fb3c0a7.mp4
 
+## Russian TG channels wrote that it was "air defense working."And at 10:44 the head of Ukrzaliznytsia informed in Telegram that two rockets had hit the Kramatorsk railway station, from which people had been evacuated. On the rest of the rocket there is an inscription in Russian "for children".
+Rosyjskie kanały TG napisały, że to "działa obrony powietrznej". A już o 10:44 szef Ukrzaliznytsia poinformował w Telegramie, że dwie rakiety uderzyły w stację kolejową Kramatorsk, z której ewakuowano ludzi. Na reszcie rakiety widoczny napis w języku rosyjskim „dla dzieci”.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Rakieta.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/162612903-c9a04509-3c69-4b3f-afea-cb163f1f34f3.mp4
+
+## It is worth noting that on the eve of one of the Russian TG channels, the inhabitants of Kramatorska, Słowiańska and the neighboring towns were advised not to evacuate by train. In addition, Russian TG channels wrote about arrivals at the Kramatorsk station and indicated that the occupiers "are working on the concentration of the Armed Forces of Ukraine."
+Warto zauważyć, że w przededniu jednego z rosyjskich kanałów TG mieszkańcom Kramatorska, Słowiańska i sąsiednich miejscowości odradzano ewakuację koleją. Ponadto rosyjskie kanały TG pisały o przyjazdach na dworzec Kramatorsk i wskazywały, że okupanci „pracują nad koncentracją Sił Zbrojnych Ukrainy”. 
+
+
+![Koncentracja.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Koncentracja.jpg)
+
+Te posty zostały później usunięte. Co wydarzyło się wcześniej: Rankiem 8 kwietnia rosyjscy najeźdźcy zaatakowali rakietami dworzec kolejowy w Kramatorsku , zabijając co najmniej 30 osób i raniąc ponad 100. Według Służby Bezpieczeństwa Ukrainy znanych jest 39 zabitych, w tym  4 dzieci . Setki osób zostaje rannych. Prokuratura Generalna poinformowała, że ​​w momencie ataku rakietowego wroga na stację kolejową w Kramatorsku 8 kwietnia przebywało tam 4 tys. cywilów.
+
+Na reszcie rakiety widoczny napis w języku rosyjskim „dla dzieci”.
+
+
+
+Podczas parady maj 2021, TOCZKA
