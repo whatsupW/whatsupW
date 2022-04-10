@@ -16,10 +16,30 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha2.mp4?raw=true
 https://user-images.githubusercontent.com/101053692/162633383-49984622-f9ac-4874-9069-28c821b54dd2.mp4
 
 
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_zdjecia.mp4?raw=true
 
+https://user-images.githubusercontent.com/101053692/162633670-a408650a-da07-458e-a83b-b4a29f923230.mp4
 
+![Bucha1.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha1.jpg?raw=true)
 
-
+![Bucha2.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha2.jpg?raw=true)
+  
+  ![Bucha3.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha3.jpg?raw=true)
+  
+  ![Bucha4.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha4.jpg?raw=true)
+  
+  ![Bucha5.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha5.jpg?raw=true)
+  
+  ![Bucha6.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha6.jpg?raw=true)
+  
+  ![Bucha7.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha7.jpg?raw=true)
+  
+  ![Bucha8.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha8.jpg?raw=true)
+  
+  
+  
+  
+  
 
 ## Note drastic - do not send via Whatsup or you may get blocked, better send the link of the entire page. Bound civilians had their eyes burned out and shots in the head.
 Uwaga drastyczne - nie przesyłaj przez Whatsup, bo możesz zostać zablokowany.Lepiej wyślij link.  Związanym cywilom wypalono oczy, strzelano w głowę.
