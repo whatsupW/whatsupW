@@ -47,3 +47,10 @@ Uwaga drastyczne - nie przesyłaj przez Whatsup, bo możesz zostać zablokowany.
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_drastyczne.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/162631840-4ed42b27-337f-45b3-a633-3fbacd455b86.mp4
+  
+## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence>)
+
+https://github.com/whatsupW#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence
