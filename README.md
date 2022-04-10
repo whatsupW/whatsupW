@@ -61,9 +61,13 @@ Pierwszy tekst - List do Rosjan z marca 2022
 ### You can submit the link - Copy it
 Możesz przesłać link - Skopiuj go
 
-https://github.com/whatsupW/whatsupW/blob/main/Dear%20Russians.md
+https://github.com/whatsupW/whatsupW/blob/main/Dear_Russians.md
 
 ### By clicking below you will go to the content - Here you will find texts, photos and videos to copy.
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
-[<Уважаемые россияне.md>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20Russians.md>)
+English version
+[<Dear_Russians.pdf>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansUS.pdf>)
+
+Russian version
+[<Dear_Russians.pdf>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansRU.pdf>)
