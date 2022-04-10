@@ -1,5 +1,5 @@
 # Before and after photos
-Zdjęcia „przed” i „po”
+Zdjęcia przed i po
 
 ## On Thursday, February 24, Russian President Vladimir Putin launched a massive invasion of Ukraine.Russia announced a military "special operation" purportedly to "demilitarize and de-Nazify Ukraine." At 5 a.m., rocket attacks began across Ukraine. Russian troops attacked Ukraine near Kharkiv, Kherson, Chernihiv and Sumy. By March 4, 351 civilians had died in Ukraine since the beginning of the war, and 707 were injured. By March 5, 32 children had died and 70 were injured. 1. Kyiv. House at 6th Lobanovsky Avenue. On February 26, during the shelling of Zhulyan, the Russian occupiers struck a skyscraper, destroying apartments on several floors.
 
