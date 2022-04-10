@@ -2,6 +2,7 @@
 Zbrodnie wojenne i zabójstwa ludności cywilnej. Na pogawędce domowej nagrał okrucieństwa w Bucha
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
+
 https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
 
 Source - Źródło
