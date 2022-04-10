@@ -53,3 +53,19 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/ParadaTOCZKA.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/162613352-3be57757-ec98-4f7e-9baf-7fe8d7505340.mp4
 
+## "POINT U", "Calibers" and "Iskanders": what missiles Russia is shelling the cities of Ukraine
+„TOCZKA U”, „Kalibry” i „Iskanders”: jakie pociski Rosja ostrzeliwuje miasta Ukrainy
+
+Source - Źródło 2 marca 2022
+[<BBC Sprzęt>](<https://www.bbc.com/ukrainian/news-60594123/>)
+
+![ToczkaU.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/sprzet.jpg?raw=true)
+
+Source - Źródło 6 marca 2022
+[<TWITTER _CIT Sprzęt>](<https://twitter.com/CITeam_en/status/1500475853490343936?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1500475853490343936%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.bbc.com%2Fukrainian%2Fnews-60594123/>)
+
+![ToczkaU2.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/sprzet2.jpg)
+
+## Just before the war, these complexes were seen during joint exercises between Russia and Belarus near the border with Ukraine.
+Tuż przed wojną kompleksy te widziano podczas wspólnych ćwiczeń Rosji i Białorusi w pobliżu granicy z Ukrainą.
+![ToczkaU3.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/sprzet3.jpg)
