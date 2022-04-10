@@ -1,81 +1,28 @@
-# Уважаемые россияне,
+# Texts to the Russians,
 
-Невозможно не заметить изменения, произошедшие 24 февраля 2022 года. 
-24 февраля 2022 года в 3.45 Владимир Путин приказал провести «специальную военную операцию в Украине». По словам президента России, он должен был помогать гражданам Украины и защищать их. Нападение утром, когда все спали, без предупреждения. Вам это движение ничего не напоминает? Разве не так поступал Гитлер 1 сентября 1939 года в Польше? Разве это движение не нацистское? Так должна выглядеть помощь?
- 
-![IkonaWojny](https://user-images.githubusercontent.com/101053692/157290547-343ddb72-6409-4db2-bf36-9d71675e3f38.jpg)
+## First text - Letter to Russia of March 2022
+Pierwszy tekst - List do Rosjan z marca 2022
 
-Взрывы были слышны утром на подступах к Киеву, в Харькове, а также, в частности, во Львовской области на западе Украины. Однако вскоре выяснилось, что под удар попали как военная инфраструктура, так и гражданские объекты. Он послал завербованных молодых солдат, которых убедил, что это учения. Он послал их, как пушечное мясо. Ни опыта, ни провизии, нa старых танках. И только когда молодые русские поняли, что это они нападают.
+### You can submit the link - Copy it
+Możesz przesłać link - Skopiuj go
 
-https://user-images.githubusercontent.com/101053692/157274497-ef5f4a57-e541-40d0-a11f-3042efe006da.mp4
+https://github.com/whatsupW/whatsupW/blob/c9c046a9f19f27cec057ab000e87a675d6d704a5/%D0%A3%D0%B2%D0%B0%D0%B6%D0%B0%D0%B5%D0%BC%D1%8B%D0%B5%20%D1%80%D0%BE%D1%81%D1%81%D0%B8%D1%8F%D0%BD%D0%B5.md
 
-https://user-images.githubusercontent.com/101053692/157274650-30ae144b-f06b-4edb-81ea-895e71bf032c.mp4
+### By clicking below you will go to the content.
+Klikając poniżej przejdziesz do treści.
 
-https://user-images.githubusercontent.com/101053692/157274841-6458865b-f4d1-4e8d-9f68-6d682c6cc9d8.mp4
+[<Уважаемые россияне.md>](<https://github.com/whatsupW/whatsupW/blob/c9c046a9f19f27cec057ab000e87a675d6d704a5/%D0%A3%D0%B2%D0%B0%D0%B6%D0%B0%D0%B5%D0%BC%D1%8B%D0%B5%20%D1%80%D0%BE%D1%81%D1%81%D0%B8%D1%8F%D0%BD%D0%B5.md>)
 
-https://user-images.githubusercontent.com/101053692/157340144-3ff1995e-3e15-4856-a627-be41f69c57d0.mp4
+## Before the strike on Kramatorsk, missiles were launched from the occupied Shakhtyorsk
+Przed uderzeniem na Kramatorsk zarejestrowano wystrzelenie rakiety z okupowanego Szachtiorska
 
-Войска Путина бомбят города. Не смотря на гражданское население. Бомбят детские сады, школы и даже больницы.
+### You can submit the link - Copy it
+Możesz przesłać link - Skopiuj go
 
-В Луганске российская армия захватила госпиталь, который пытались восстановить украинцы. Путин смог сделать из этого пропаганду, показав, что это украинские военные стреляли по собственной больнице. Так выглядят сейчас детские сады.
+https://github.com/whatsupW/whatsupW/blob/9bac305dec86de6193eeef3a29c61f84d37846e3/Kramatorsk.md
 
-![Так выглядит детский сад сейчас.](https://github.com/whatsupW/whatsupW/blob/b3ef5de8db7938379ed26233eabf3319a2a04418/img/przedszkole1.jpg "Так выглядит детский сад сейчас.").
-![Charkow_m](https://user-images.githubusercontent.com/101053692/157340193-052b5d71-d1b1-495f-ab50-e676b2bab9f3.jpg)
+### By clicking below you will go to the content.
+Klikając poniżej przejdziesz do treści.
 
-А вот так выглядит повседневная жизнь.
-
-https://user-images.githubusercontent.com/101053692/157275206-78767f9b-e028-45bf-8df1-bd2b0d916018.mp4
-
-Президент Зеленский попросил гуманитарные коридоры и прекращение огня, чтобы население могло эвакуироваться. Угадайте, что сделал путин? Он приказал расстрелять мирных жителей. Это геноцид.
-
-https://user-images.githubusercontent.com/101053692/157272039-e0959213-169a-4998-b7e1-5f7feed03931.mp4 
-
-А что показывают в российских СМИ, что они освобождают Украину, что украинцы благодарят за освобождение.
-Все это неправда.
-
-Посмотрите, как смонтировали фильм, чтобы показать, что Путин не прячется.
-
-https://user-images.githubusercontent.com/101053692/157275611-4d25d722-0b55-4dd0-926d-8430f61d7b53.mp4
-
-Весь мир взбунтовался, и что видит гражданин России? Что Путин подает на подносе.
-В Мариуполе мирные жители выходят и сталкиваются с приближающимися танками. Без оружия они могут остановить танк! Они не боятся умереть. За что, то есть смерть перед НЕЗАВИСИМОСТЬЮ СТРАНЫ.
-
-https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33-a760-7cfc4ad32f8e.mp4
-
-Беззащитные жители Энергодара блокируют дорогу к АЭС против армии террористического государства - Российской Федерации. Стрельба, взрывы гранат, есть жертвы.
-
-![Bezbronni mieszkańcy Energodaru](https://user-images.githubusercontent.com/101053692/157306189-9346aa46-9941-4e87-8c8d-5e801e31714f.jpg)
-
-Вас кормят пропагандистскими фильмами. Почему нет независимых СМИ. Почему блокируются сайты, которые показывают правду. К сожалению, у президента России есть большой контроль над тем, что будет транслироваться и сообщаться, люди невежественны. Вы, гражданин России, живете в неведении. Владимир Путин не спасает граждан Украины, гибнут мирные жители и дети. Военная операция закончится убийством мирных жителей.
-
-11 марта 2022 года правительство путина хочет отключить глобальный интернет. С этого дня он будет полностью контролировать вашу жизнь.
-![alt text for screen readers](img/11marcaa.jpg "Text to show on mouseover"). ![alt text for screen readers](img/11marcab.jpg "Text to show on mouseover").
-
-
-![ZabiteDzieci1m](https://user-images.githubusercontent.com/101053692/157292576-cc657b19-3bb6-4407-9e33-1fee166545b0.jpg)
-![ZabiteDzieci2m](https://user-images.githubusercontent.com/101053692/157292589-1f31a14a-d1f5-4be7-b00a-a592bdb91a7e.jpg)
-![ZabiteDzieci3m](https://user-images.githubusercontent.com/101053692/157292599-ffd955a4-2783-46af-8df9-7e2e966451d1.jpg)
-![Zabitedzieci4m](https://user-images.githubusercontent.com/101053692/157292919-6d53a313-3f60-4e6e-a014-212bdfbf3a61.jpg)
-
-Не будь равнодушным. Многие люди уже вышли на протесты. Беларусь: Несмотря на постоянные репрессии в стране, которой правит Александр Лукашенко с лета 2020 года, белорусы снова вышли на улицы. На этот раз по призыву лидера демократической оппозиции Светланы Тихановской, находившейся в Вильнюсе, в Минске тысячи людей вышли на акцию протеста против российской агрессии в Украине. Люди выстраивались в длинные очереди перед избирательными участками не для того, чтобы проголосовать, а чтобы кричать «Нет войне!» и «Слава Украине!». Старики, дети, матери солдат. Русские и белорусы протестуют против войны, несмотря на репрессии.
-
-![ProtestBialorusi](https://user-images.githubusercontent.com/101053692/157298696-1df25c0c-60b3-46a7-b596-17ad03361b65.jpg)
-
-Это просто капля в море. Не только Беларусь, но и многие другие страны заставляют россиян осознать, насколько неправ их президент.
-Не выходи один. Возьми друга, подругу. В единстве сила. Тогда начинайте протестовать. Пусть этот протест будет не только возражением против войны на Украине, но и возражением против правления Путина. Пусть будет за свободу слова и демократию.
-Присоединяйся к ним!
-
-![ProtestBerlin2_1](https://user-images.githubusercontent.com/101053692/157304107-19330ddd-cda6-4db2-a7a2-b315e70d72be.jpg)
-![ProtestBerlina_1](https://user-images.githubusercontent.com/101053692/157304083-cc7fd84a-196c-42fe-abb9-f25241d29e12.jpg)
-![ProtestBerlin3_1](https://user-images.githubusercontent.com/101053692/157304127-964a2fc3-2eee-4bb2-a27e-0d9c132c8e4f.jpg)
-![ProtestAustralia_1](https://user-images.githubusercontent.com/101053692/157305268-fb36f2ee-9cfd-4c14-b1d0-9c809d6a7ddd.jpg)
-![ProtestTajlandia_1](https://user-images.githubusercontent.com/101053692/157304648-96cab81c-abd1-4539-aec5-6528c4d12e13.jpg)
-![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
-
-9 марта 2022 года
-Выступление Президента Украины после взрыва детской больницы в Мариуполе 9 марта 2022 года.
-
-https://user-images.githubusercontent.com/101053692/157619988-c63e3bbb-50ff-499b-8e4e-6c72d12e91f2.mp4
-
-https://user-images.githubusercontent.com/101053692/157620346-f1861156-13f4-48c3-a2b8-ded971004a4f.mp4v
+[<Kramatorsk.md>](<https://github.com/whatsupW/whatsupW/blob/9bac305dec86de6193eeef3a29c61f84d37846e3/Kramatorsk.md>)
 
