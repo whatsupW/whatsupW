@@ -2,6 +2,8 @@
 
 Teksty do Rosjan, które możesz skopiować i wysłać np Whatsup wa.1920.in jako odpowiedź na ich propagandę. Nie znasz rosyjskiego używaj translatora. A tu znajdziesz dowody.
 
+https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md
+
 ## Before the strike on Kramatorsk, missiles were launched from the occupied Shakhtyorsk
 Przed uderzeniem na Kramatorsk zarejestrowano wystrzelenie rakiety z okupowanego Szachtiorska
 
