@@ -68,8 +68,8 @@ Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty,
 
 English version
 
-[<Dear_Russians.pdf>](https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md?raw=true>)
+[<Dear_Russians.pdf>](htthttps://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>)
 
 Russian version
 
-[<Dear_Russians.pdf>](https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansRU.pdf?raw=true>)
+[<Dear_Russians.pdf>](https://https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md>)
