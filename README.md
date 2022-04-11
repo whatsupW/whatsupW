@@ -33,7 +33,7 @@ Miasta
 
 ## Bucha
 
-[<Bucha.md>](<https://github.com/whatsupW/whatsupW/blob/main/Bucha.md>)
+[<Bucha - link>](<https://github.com/whatsupW/whatsupW/blob/main/Bucha.md>)
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
 
@@ -44,18 +44,29 @@ https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495
 
 ## Gostomel
 
-[<Gostomel.md>](<https://github.com/whatsupW/whatsupW/blob/main/Gostomel.md>)
+[<Gostomel - link>](<https://github.com/whatsupW/whatsupW/blob/main/Gostomel.md>)
 
-# Before and after photos
+## Poverty_in_Russia.md
+Ubóstwo w rosji.
+
+[<Poverty_in_Rusia - link>](<https://github.com/whatsupW/whatsupW/blob/main/Poverty_in_Russia.md>)
+
+![Ubóstwo1.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/1roski_budynek.jpg?raw=true)
+
+## Before and after photos
 Zdjęcia przed i po
 
+  [<Before and after photos - link>](<https://github.com/whatsupW/whatsupW/blob/main/Zdj%C4%99cia_przed_i_po.md>)
+  
 ![Charkowska specjalistyczna szkoła №134](https://github.com/whatsupW/whatsupW/blob/main/img/1/2%20Charkowska%20specjalistyczna%20szko%C5%82a%20%E2%84%96134.png?raw=true)
 
 https://github.com/whatsupW/whatsupW/blob/main/Zdj%C4%99cia_przed_i_po.md
 
-# First text - Letter to Russia of March 2022
+## First text - Letter to Russia of March 2022
 Pierwszy tekst - List do Rosjan z marca 2022
 
+   [< Letter to Russia of March 2022 - link>](<https://github.com/whatsupW/whatsupW/blob/main/Dear_Russians.md>)
+  
 ![IkonaWojny](https://user-images.githubusercontent.com/101053692/157290547-343ddb72-6409-4db2-bf36-9d71675e3f38.jpg)
 
 ### You can submit the link - Copy it
@@ -67,10 +78,17 @@ https://github.com/whatsupW/whatsupW/blob/main/Dear_Russians.md
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
 English version 
-[<LetterUS.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>) 
+[<LetterUS - link>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>) 
 
 Polska wersja
-[<ListPL.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMePL.md>)
+[<ListPL - link>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMePL.md>)
 
 Russian version
-[<LetterRU.md>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md>)
+[<LetterRU - link>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md>)
+  
+  #### PDF
+English version 
+[<LetterUS.pdf - link>](<https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansUS.pdf?raw=true>) 
+
+Russian version
+[<LetterRU.pdf - link>](<https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansRU.pdf?raw=true>)
