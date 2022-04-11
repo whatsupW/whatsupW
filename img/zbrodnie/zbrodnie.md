@@ -1,8 +1,6 @@
 # Crimes of Russians
 Zbrodnie rosjan
 
-## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD
-UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT
 ## Intercepted conversation between the Russian commander and the soldier.
 Przechwycona rozmowa dowódcy rosjan z żołnierzem. 
 
@@ -24,10 +22,13 @@ https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Kharkiv_bomba_na_cyw
 
 https://user-images.githubusercontent.com/101053692/162839049-79bb1fcb-7a0f-48d6-a3f4-fd0469b79d67.mp4
 
+## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD
+UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT
 
+## Bucha. Burned bodies
+Bucza. Spalone ciała 
 
-
-
+https://github.com/whatsupW/whatsupW/blob/main/Bucha.md?raw=true
 
 ## Back to main page
 Powrót do strony głównej
