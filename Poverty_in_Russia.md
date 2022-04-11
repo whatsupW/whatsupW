@@ -1,5 +1,5 @@
 # Poverty_in_Russia.md
-Ubustwo w rosji.
+Ubóstwo w rosji.
 
 ## They still live in Russia in such conditions and he conquers the world. Such a room wants to introduce us ..... thank you very much. I prefer my myr, I don't need Russian.
 W takich warunkach żyją jeszcze w Rosji a on świat podbija. Taki mir chce nam wprowadzić..... dziękuję bardzo.
