@@ -2,15 +2,11 @@
 Świat solidarnie z Ukrainą. A wy Rosjanie nawet tego nie widzicie bo putin się boi prawdy i blokuje Wam internet. Czy to nie daje ci do myślenia?
 
 
-https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4?raw=true
-
 [![Arnold](https://github.com/whatsupW/whatsupW/blob/main/img/2/Arnold_Schwarzenegger.PNG)](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4?raw=true)
 
-ddddddddddddddddddddddddddddddddd
+![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
 
-![ToczkaU.jpg](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4)
-
-![ToczkaU3.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/sprzet3.jpg)
+![Miasta.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG)
 
 ## Back to main page
 Powrót do strony głównej
