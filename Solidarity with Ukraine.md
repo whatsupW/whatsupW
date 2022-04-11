@@ -4,9 +4,9 @@
 
 https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4?raw=true
 
-[![Watch the video](https://i.imgur.com/vKb2F1B.png)](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4?raw=true)
+[![Arnold](https://i.imgur.com/vKb2F1B.png)](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4)
 
-
+ddddddddddddddddddddddddddddddddd
 
 ![ToczkaU.jpg](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4)
 
