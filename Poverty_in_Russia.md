@@ -15,6 +15,9 @@ Wolę mój myr, rosyjskiego nie potrzebuję.
 
 ![Ubóstwo1.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/5roski_budynek.jpg?raw=true)
 
+## Do you want to send us an idea, text, photos or videos? Post on Twitter @ nowar93497824
+Chcesz przesłać nam pomysł, text, zdjęcia lun filmiki? Napisz na Twitter @nowar93497824
+
 ## Back to main page
 Powrót do strony głównej
 
