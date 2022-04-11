@@ -2,12 +2,12 @@
 
 Teksty do Rosjan, które możesz skopiować i wysłać np Whatsup wa.1920.in jako odpowiedź na ich propagandę. Nie znasz rosyjskiego używaj translatora. A tu znajdziesz dowody.
 
-[Kramatorsk.md](<https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md>)
+[Kramatorsk - link](<https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md>)
 
 ## Before the strike on Kramatorsk, missiles were launched from the occupied Shakhtyorsk
 Przed uderzeniem na Kramatorsk zarejestrowano wystrzelenie rakiety z okupowanego Szachtiorska
 
-![Telegram-wystrza%C5%82.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Telegram-wystrza%C5%82.jpg)
+![Telegram-wystrzal.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Telegram-wystrza%C5%82.jpg)
 
 ### You can submit the link - Copy it
 Możesz przesłać link - Skopiuj go
@@ -17,12 +17,12 @@ https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md
 ### By clicking below you will go to the content - Here you will find texts, photos and videos to copy.
 Klikając poniżej przejdziesz do treści - Tu znajdziesz do skopiowania teksty, zdjęcia i filmiki.
 
-[<Kramatorsk.md>](<https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md>)
+[<Kramatorsk - link>](<https://github.com/whatsupW/whatsupW/blob/main/Kramatorsk.md>)
 
 # Videos showing the war on Ukraine - Called by a hutin a special military action - Rusy Peace
 Filmiki pokazujące Wojnę na Ukrainę - Przez hutina nazwaną specjalną akcją wojskową - Ruski Mir
 
-[<Filmy.md>](https://github.com/whatsupW/whatsupW/blob/main/Filmy.md)
+[<Movies - link>](https://github.com/whatsupW/whatsupW/blob/main/Filmy.md)
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Film1.mp4?raw=true
 
