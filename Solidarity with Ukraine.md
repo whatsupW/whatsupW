@@ -4,7 +4,7 @@
 
 https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4?raw=true
 
-[![Arnold](https://github.com/whatsupW/whatsupW/blob/main/img/2/Arnold_Schwarzenegger.PNG)](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4)
+[![Arnold](https://github.com/whatsupW/whatsupW/blob/main/img/2/Arnold_Schwarzenegger.PNG)](https://github.com/whatsupW/whatsupW/blob/main/Arnold_Schwarzenegger.mp4?raw=true)
 
 ddddddddddddddddddddddddddddddddd
 
