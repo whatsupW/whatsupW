@@ -1,6 +1,11 @@
 # Crimes of Russians
 Zbrodnie rosjan
 
+## The Russians leave the corpses of their soldiers.
+Ruskie pozostwiają zwłoki swoich żołnierzy.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
+
 ## Intercepted conversation between the Russian commander and the soldier.
 Przechwycona rozmowa dowódcy rosjan z żołnierzem. 
 
