@@ -39,23 +39,4 @@ Rankiem 2 marca wojska rosyjskie uderzyły w jeden z budynków Charkowskiego Uni
 9. Żytomierz, liceum №25. 4 marca w wyniku kolejnego uderzenia w ruiny przekształcono 25. liceum w Żytomierzu. Budynek placówki oświatowej został całkowicie zniszczony.
 ![Żytomierz, liceum n25](https://github.com/whatsupW/whatsupW/blob/main/img/1/4%20Kijowska%20wie%C5%BCa%20telewizyjna.png?raw=true)
 
-10. Czernihów, budynki mieszkalne 
-Rankiem w czwartek 3 marca wojska rosyjskie rozpoczęły atak rakietowy na wieżowiec w centrum Czernihowa. W ataku zginęli ludzie.
-
-
-11. Czernihów, Gimnazjum nr 18
-
-
-12. Bucza, budynki mieszkalne 
-Na początku marca do Buczy wkroczyli rosyjscy okupanci. Wojska rosyjskie nie zaprzestały prób zbliżania się do Kijowa, ale każdy kolejny atak był szybko odpierany przez obrońców ukraińskich.
-
-13. Ochtyrka, Ochtyrka CHP
-3 marca rosyjskie siły okupacyjne dokonały nalotu na elektrownię cieplną Ochtyrka. Podczas ostrzału zginęli ludzie.
-
-
-
-14. Irpen, budynki mieszkalne w osiedlu Flamingo
-
-15. Wioska Czajka, spiżarnia
-
-
+![Mariupol](https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.jpg?raw=true)
