@@ -1,13 +1,15 @@
 # War crimes and killings of civilians. As a home chat, he recorded atrocities in Bucha
 Zbrodnie wojenne i zabójstwa ludności cywilnej. Na pogawędce domowej nagrał okrucieństwa w Bucha
 
+Source - Źródło
+
+  [BBC Bucha](<https://www.bbc.com/ukrainian/features-60980624/>)
+
+  [BBC Bucha](<https://www.bbc.com/ukrainian/features-60747432/>)
+
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
-
-Source - Źródło
-[<BBC Bucha>](<https://www.bbc.com/ukrainian/features-60980624/>)
-[<BBC Bucha>](<https://www.bbc.com/ukrainian/features-60747432/>)
   
 ## "The main reason for the situation in which Bucha and Irpin found themselves was the betrayal of another" brotherly nation "- the Belarusians." It was from the territory of Belarus to the north of the Kiev region on the first day of the invasion on February 24 that the Russian troops began to enter, aiming at the capital of Ukraine. “It's simple - the route through Chernobyl is the shortest, the distance to the outskirts of Kiev is approx. 70 km. The Russians took Chernobyl, then Ivankov, from which two columns marched to the capital, ”explains the terrorist.One column went from Katyažanka to the village of Babyntsi and Borodyanki, another went to the city of Dymer and tried to go to Vyshgorod, but in the Demidowo region, Ukrainian troops blew up a pontoon crossing of the Russians across the Irpin River. Therefore, these forces of the Russian army decided to move towards Bucza. So in Bucza several routes of Russians converged, who tried to break through to the capital of Ukraine in vain. The first shots began on March 3. The drama lasted until April 1. When the Russian troops fled the city.
   
