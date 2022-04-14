@@ -4,6 +4,8 @@ Jak pomóc Ukrainie z 1920.in?
 Nasza strona powstała dla osób, które chcą pomóc Ukrainie a nie wiedzą jak.
 Najlepszym liberalnym sposobem by wojna się zakończyła jest wytłumaczenie Rosjanom, że to nie jest "specjalna misja wojskowa" Tylko ludobójcza wojna hutina. 
 
+Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę hutina. Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
+
 ### Jak to zrobić?
 Nie znasz żadnego Rosjanina? To nie problem!
 Informatycy Anonymous stworzyli stronę byś mógł szybko dostać taki kontakt.
@@ -17,7 +19,7 @@ Wchodzisz na stronę https://1920.in wybierasz sam metodę jaką chcesz użyć. 
 
 ![1920](https://user-images.githubusercontent.com/101053692/163460405-cc099c1d-bb93-4432-8dd9-32e4ba87b76a.png)
 
-### SEND SMS
+## SEND SMS
 Chyba nie trzeba tłumaczyć. :)
 
 ## SEND WHATSUP
@@ -30,18 +32,21 @@ Każda poczta ma swoje ograniczenia, np. gmail 100 maili dziennie więc się nie
 ## CALL
 Dużo ludzi korzysta z tej opcji, ale tylko te co rozmawiają po rosyjsku. Nie umiesz wybierz opcje powyższe.
 
-Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę hutina. Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
+## Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę hutina. Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
 
+## Pierwszy kontakt
 Ja od paru tygodni rozmawiam z paroma osobami. Są osoby, które to rozumieją i czują się bezsilne bo mogą zostać ukarane. Im tłumaczę, że nie są sami i też staram się dotrzeć do następnych by im to uświadomić, że muszą sami obalić rząd. Inaczej nic się nie zmieni. 
-Większość nie odpisuje. Ale np. w whatsup widać, że odczytują. Dlatego też im śle następne filmy czy teksty. Pamiętaj, że oni mogą te wiadomości rozsyłać dalej. A przecież w tym nam o to chodzi, żeby dotrzeć do jak największej liczby osób.
 
-Są też osoby, które zapytają: Ktoś ty?
-
+Większość nie odpisuje. Ale np. w whatsup widać, że odczytują. Dlatego też im śle następne filmy czy teksty. Pamiętaj, że oni mogą te wiadomości rozsyłać dalej. A przecież o to chodzi nam chodzi, żeby dotrzeć do jak największej liczby osób.
 
 No i teraz są też osoby, które odpiszą.
-Możesz usłyszeć na samym początku obraźliwe odpowiedzi. np. Spierdalaj… 
+Możesz usłyszeć na samym początku obraźliwe odpowiedzi. np. Spierdalaj… Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć 
 
-Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć 
+Są też osoby, które zapytają: Ktoś ty? Odpisuję, że:
+Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna. 
+
+Nie rozumiem czemu Wy nie widzicie tej wojny? Czemu dalej wierzycie putinowi? Cały świat pomaga Ukrainie. Zastanawiałeś się czemu uciekają zagraniczne firmy z Rosji?
+
 
 
 
