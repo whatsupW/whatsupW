@@ -42,7 +42,9 @@ Większość nie odpisuje. Ale np. w whatsup widać, że odczytują. Dlatego te�
 
 No i teraz są też osoby, które odpiszą.
 
-Są też osoby, które zapytają: Ktoś ty?
+Są też osoby, które zapytają: 
+
+Ktoś ty?
 
 No i są też osoby, od których możesz usłyszeć na samym początku obraźliwe słowa np. spierdalaj … 
 Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
