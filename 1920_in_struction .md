@@ -39,31 +39,9 @@ Ja od paru tygodni rozmawiam z paroma osobami. Są osoby, które to rozumieją i
 
 Większość nie odpisuje. Ale np. w whatsup widać, że odczytują. Dlatego też im śle następne filmy czy teksty. Pamiętaj, że oni mogą te wiadomości rozsyłać dalej. A przecież o to chodzi nam chodzi, żeby dotrzeć do jak największej liczby osób.
 
+Są też osoby, które zapytają: Ktoś ty?
+
 No i teraz są też osoby, które odpiszą.
-Możesz usłyszeć na samym początku obraźliwe odpowiedzi. np. Spierdalaj… Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć 
+Możesz usłyszeć na samym początku obraźliwe odpowiedzi. np. spierdalaj … Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
 
-Są też osoby, które zapytają: Ktoś ty? Odpisuję, że:
-Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna. 
-
-Nie rozumiem czemu Wy nie widzicie tej wojny? Czemu dalej wierzycie putinowi? Cały świat pomaga Ukrainie. Zastanawiałeś się czemu uciekają zagraniczne firmy z Rosji?
-
-
-
-
-
-
-Na początku na pewno usłyszysz Ktoś ty?
-
-
-Czujesz się bezradny a chcesz coś zrobić?
-
-
-Nie wiesz jak pomóc? 
-korzystają ze strony nie piszących po rosyjsku jak i 
-
-
-
-O to przykładowa rozmowa z Rosjaninem.
-
-
-Sankcje mają mizerny wpływ. Nie odetną przecież gazu i ropy bo im się status zmieni na gorszy…. - to bym wyciął.
+## Przykład rozmowy
