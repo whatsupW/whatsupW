@@ -7,12 +7,13 @@ https://github.com/whatsupW/whatsupW/blob/main/1920_in_struction%20.md
 
 Ja od paru tygodni rozmawiam z paroma osobami. Są osoby, które to rozumieją i czują się bezsilne bo mogą zostać ukarane. Im tłumaczę, że nie są sami i też staram się dotrzeć do następnych Takich jak oni, by im to uświadomić. Muszą sami obalić rząd. Inaczej nic się nie zmieni.
 
-Większość nie odpisuje. 
+## Większość nie odpisuje. 
 Ale np. w whatsup widać, że ktoś odczytał. Dlatego też, im śle następne filmy czy teksty. Pamiętaj, że oni te wiadomości mogą rozsyłać dalej. A przecież o to chodzi nam chodzi, żeby dotrzeć do jak największej liczby osób.
 
-No i teraz są też osoby, które odpiszą.
+## No i teraz są też osoby, które odpiszą.
 
-Osoby, które zapytają: Ktoś ty?
+# Osoby, które zapytają: 
+- Ktoś ty?
 
 No i są też osoby, od których możesz usłyszeć na samym początku obraźliwe słowa np. spierdalaj … 
 Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając im pytanie. Jakie? Przeczytaj nizej.
@@ -28,12 +29,14 @@ Wiem nie rozumiesz rosyjskiego, dlatego tu jesteśmy. Nie zgaduj słów. Przetł
 
 https://translate.google.com/?sl=auto&tl=ru&op=translate
 
-I odpowiedz w rosyjskim języku…  :)  
+I odpowiedz w rosyjskim języku… 
+
 - Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna.
 
-W tym przykładzie zmień imię  bo będę sławny. :)
+W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska tego nie wykorzystała. Nie bój się, jak sobie nie poradzimy i tak będzie wojna.
 
-Wiadomo odpowiedź może być inna ja pokazuję jak odpowiadałem. Jak nie będziesz miał odpowiedzi na pytanie to zadaj je nam na twitter,  
+Wiadomo, odpowiedź może być inna. Ja pokazuję jak odpowiadałem. Jak nie będziesz miał odpowiedzi na pytanie to zadaj je nam na twitter,  
+
 
 
 to są ludzie i też mogą poczekać. A może zadadzą Ci mądre pytanie. 
