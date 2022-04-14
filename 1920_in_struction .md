@@ -40,10 +40,12 @@ Ja od paru tygodni rozmawiam z paroma osobami. Są osoby, które to rozumieją i
 
 Większość nie odpisuje. Ale np. w whatsup widać, że odczytują. Dlatego też im śle następne filmy czy teksty. Pamiętaj, że oni mogą te wiadomości rozsyłać dalej. A przecież o to chodzi nam chodzi, żeby dotrzeć do jak największej liczby osób.
 
+No i teraz są też osoby, które odpiszą.
+
 Są też osoby, które zapytają: Ktoś ty?
 
-No i teraz są też osoby, które odpiszą.
-Możesz usłyszeć na samym początku obraźliwe odpowiedzi. np. spierdalaj … Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
+No i są też osoby, od których możesz usłyszeć na samym początku obraźliwe słowa np. spierdalaj … 
+Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
 
 ## Przykład rozmowy
 link
