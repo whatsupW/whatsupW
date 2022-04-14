@@ -9,7 +9,13 @@ Nie znasz żadnego Rosjanina? To nie problem!
 Informatycy Anonymous stworzyli stronę byś mógł szybko dostać taki kontakt.
 
 ### A w jaki sposób?
-Wchodzisz na stronę https://1920.in wybierasz sam metodę jaką chcesz użyć.
+Wchodzisz na stronę https://1920.in wybierasz sam metodę jaką chcesz użyć. Na początku strona sprawdzi czy jesteś na telefonie mobilnym, czy na komputerze.
+
+![test](https://user-images.githubusercontent.com/101053692/163460181-4b5bd77a-29c0-4e31-8af5-d87c51436127.png)
+
+## Metody do wyboru
+
+![1920](https://user-images.githubusercontent.com/101053692/163460405-cc099c1d-bb93-4432-8dd9-32e4ba87b76a.png)
 
 ### SEND SMS
 Chyba nie trzeba tłumaczyć. :)
