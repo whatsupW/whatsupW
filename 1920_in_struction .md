@@ -2,7 +2,8 @@
 Jak pomóc Ukrainie z 1920.in?
 
 Nasza strona powstała dla osób, które chcą pomóc Ukrainie a nie wiedzą jak.
-Najlepszym liberalnym sposobem by wojna się zakończyła jest wytłumaczenie Rosjanom, że to nie jest "specjalna misja wojskowa" Tylko ludobójcza wojna hutina. 
+Najlepszym liberalnym sposobem by wojna się zakończyła jest wytłumaczenie Rosjanom, że to nie jest "specjalna misja wojskowa". 
+Tylko ludobójcza wojna hutina. Sam nie umię rosyjskiego, korzystam z translatora google, co tłumaczę w pierwszej odpowiedzi.
 
 Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę hutina. Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
 
@@ -45,3 +46,4 @@ No i teraz są też osoby, które odpiszą.
 Możesz usłyszeć na samym początku obraźliwe odpowiedzi. np. spierdalaj … Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
 
 ## Przykład rozmowy
+link
