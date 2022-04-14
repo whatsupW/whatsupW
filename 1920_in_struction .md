@@ -11,7 +11,7 @@ Informatycy Anonymous stworzyli stronę byś mógł szybko dostać taki kontakt.
 ### A w jaki sposób?
 Wchodzisz na stronę https://1920.in wybierasz sam metodę jaką chcesz użyć. Na początku strona sprawdzi czy jesteś na telefonie mobilnym, czy na komputerze.
 
-![test](https://user-images.githubusercontent.com/101053692/163460181-4b5bd77a-29c0-4e31-8af5-d87c51436127.png)
+![test_52](https://user-images.githubusercontent.com/101053692/163461096-8331dd53-1dd1-4c48-9035-72333d922ee2.png)
 
 ## Metody do wyboru
 
