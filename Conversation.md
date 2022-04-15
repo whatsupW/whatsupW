@@ -187,13 +187,16 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 
 «Москва» — российский гвардейский ракетный крейсер, головной корабль проекта 1164 «Атлант». После списания противолодочного крейсера «Москва» проекта 1123 унаследовал его имя, став флагманом Черноморского флота.   
 ```
-    Screan ze strony.
+    
+    ```
+    Screen ze strony.
     
     https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png?raw=true
     
     https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true
     
-       #### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
+  
+    #### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
     
     My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
     
