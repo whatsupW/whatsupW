@@ -1,5 +1,5 @@
-# How to help Ukraine with 1920.in?
-Jak pomóc Ukrainie z 1920.in?
+# How to help Ukraine with [1920.in](https://1920.in)?
+Jak pomóc Ukrainie z [1920.in](https://1920.in)?
 
 Our page was created for people who want to help Ukraine but don’t know how. The best way to end this war in a liberal way is to explain to Russians that this isn’t a “special military mission” - it is Putin’s genocidal war. I personally can’t speak Russian, I use google translate, which is what I explained in the first answer.
 
