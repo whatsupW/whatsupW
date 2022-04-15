@@ -1,5 +1,5 @@
 # Conversation
-    • Rozmowa
+Rozmowa
 
 #### To quote the last post:
 Cytując ostatni post:
