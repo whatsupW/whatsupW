@@ -141,7 +141,7 @@ Jak powie, że internet jest to zapytaj:
 - Dalej chcesz tak mieć? Czego nie rozumiesz? Może zamiast telewizji zacznij logicznie myśleć?
 
 ```
-- Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
+Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
 ```
 
 ## Back to main page
