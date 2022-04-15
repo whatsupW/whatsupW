@@ -33,9 +33,10 @@ Zniszczenia całej wioski po dużych bombach
 https://github.com/whatsupW/whatsupW/blob/main/img/3/zniszczenia.mp4
 https://github.com/whatsupW/whatsupW/blob/main/img/3/zniszczenia.mp4?raw=true
 
+
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence>)
+[<Readme.md>](<https://github.com/whatsupW>)
 
-https://github.com/whatsupW#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence
+https://github.com/whatsupW
