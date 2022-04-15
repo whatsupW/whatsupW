@@ -23,8 +23,8 @@ Ale np. w whatsup widać, że ktoś odczytał. Dlatego też, im śle następne f
 No i teraz są też osoby, które odpiszą. Osoby, które zapytają: 
 
 - Who are you? / Kto Ty? 
-```- Кто ты?
-```
+
+``` - Кто ты? ```
 
 ### Other people exist who may say some offensive things to you and tell you to for example to go f*ck yourself... 
 Don’t answer in the same way, even if you get mad. These are exactly the type of people who need to be reached – this is the root of the problem. These are the people who those, who understand what is going on, are scared of. You should react in a calm manner to every bad message you receive from one of them, better yet ask them a question.
@@ -60,8 +60,7 @@ https://translate.google.com/?sl=auto&tl=ru&op=translate
 I odpowiedz w rosyjskim języku… 
 - Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna.
 
-```- Я с Польши, меня зовут Павел. А тебя как зовут? Какая у вас ситуация, потому что, то, что делает Путин, это никакая не специальная операция. 
-```
+    • Я с Польши, меня зовут Павел. А тебя как зовут? Какая у вас ситуация, потому что, то, что делает Путин, это никакая не специальная операция. 
 
 ### In this example, change it to your name, so as not to give Russians the opportunity to create even more propaganda. Of course, the reply can be different, I’m just showing how I reply. If you don’t get an answer to a question, wait, maybe they will answer another one – maybe they will ask a smart question.
    
@@ -70,15 +69,13 @@ I odpowiedz w rosyjskim języku…
 W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska tego nie wykorzystała. Wiadomo, odpowiedź może być inna. Ja pokazuję jak odpowiadałem. Jak nie będziesz miał odpowiedzi na pytanie to poczekaj, może odpiszą na inne. A może zadadzą Ci mądre pytanie. 
 - Nie rozumiem czemu Wy nie widzicie tej wojny? Czemu dalej wierzycie putinowi? Czy dalej uważasz, że ratujecie Ukrainę?
 
-```- Я не понимаю, почему Вы не видите этой войны? Почему дальше верите путину? Вы дальше считаете, что спасаете Украину?
-```
+``` - Я не понимаю, почему Вы не видите этой войны? Почему дальше верите путину? Вы дальше считаете, что спасаете Украину? ```
 
 ### - But Ukrainians didn’t ask to be rescued because there are no Nazis or Bandera followers. All this was made up by Putin to excuse invading the Ukrainian territory! Now Ukrainians have to be saved FROM you!
 
 - Ale Ukraińcy nie prosili o ratunek. Bo na Ukrainie nie ma nazistów czy banderowców. To wszystko wymyślił Putin, aby usprawiedliwić wkroczenie wojska rosyjskiego na terytorium Ukrainy. Ratować teraz Ukraińców trzeba od was!
 
-```- украинцы не просили, чтобы их спасали. Потому что, в Украине нет нацистов или бендеровцев. Это все придумал путин, чтобы оправдать ввод российских войск на территорию Украины. Спасать украинцев теперь нужно от вас!!!
-```
+    • украинцы не просили, чтобы их спасали. Потому что, в Украине нет нацистов или бендеровцев. Это все придумал путин, чтобы оправдать ввод российских войск на территорию Украины. Спасать украинцев теперь нужно от вас!!!
 
 ### Now you could answer yourself: how did Ukraine disturb you? Putin has invaded and taken Crimea in 2014 and since then he has occupied Dombas. Russian propaganda has made it seem to Russian society as though there are Nazis there. Then, even we had our eyes closed. I don’t want to spread propaganda myself, however this all seems based on politics (let’s also not spread “Putinism”).
 
