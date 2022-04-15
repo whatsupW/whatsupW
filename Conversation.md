@@ -134,10 +134,9 @@ https://user-images.githubusercontent.com/101053692/163636238-49aa1cfe-3965-488d
 
 https://user-images.githubusercontent.com/101053692/163639218-7ee7f8fb-d0f6-43da-aa90-0e45ce130b10.mp4
     
-    https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_zdjecia.mp4?raw=true
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_zdjecia.mp4?raw=true
 
-
-    https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
+https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
     
 
 ### - Other than the Russian military being engaged in looting, they are also raping, torturing and brutally killing innocent children and women. Did you know that the youngest raped child was 2 years old? The Russian military doesn’t only abuse innocent people but they also shoot civil buildings and not just as they claim military objects.
