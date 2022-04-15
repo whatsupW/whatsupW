@@ -103,7 +103,7 @@ Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 pu
 ```
 ![Miasta.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG)
     
-    ![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
+![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
     
 ### They will probably say that everything is okay. They’ve got sugar, cheap oil and gas (oil cost 20 rubles as of the 18th March 2022 as they produce it themselves). Putin doesn’t want to show that their situation is bad and so he keeps prices as they were so as not to cause panic. The economy is in fact crashing. You won’t probably convince them with this argument but it should make them curious to find out more.
 
@@ -124,6 +124,21 @@ Jak powie, że internet jest to zapytaj:
 ```
 Ты знаешь, что действительно делает российская армия в Украине? У тебя есть понимание того, что путин вам все блокирует и ты смотришь только телевизор, только то, что вам хотят показывать? Ты знаешь, что российская армия украденные в Украине вещи (золото, мобильные телефоны, телевизоры) высылает через белорусскую почту своим семьям? 
 ```
+    
+# W telewizji pewnie słyszałeś, że to Ukraince zabili cywili w Buczy. A fakty są inne. To Wasi żołnierze mieli taki rozkaz. Zdjęcia satelitarne też pokazują, że ciała leżały już prędzej.
+    
+
+https://user-images.githubusercontent.com/101053692/163636238-49aa1cfe-3965-488d-99df-ef2c947cc5fc.mp4
+
+    https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/163639218-7ee7f8fb-d0f6-43da-aa90-0e45ce130b10.mp4
+    
+    https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_zdjecia.mp4?raw=true
+
+
+    https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
+    
 
 ### - Other than the Russian military being engaged in looting, they are also raping, torturing and brutally killing innocent children and women. Did you know that the youngest raped child was 2 years old? The Russian military doesn’t only abuse innocent people but they also shoot civil buildings and not just as they claim military objects.
 
@@ -133,6 +148,8 @@ Jak powie, że internet jest to zapytaj:
 Кроме того, что российские военные занимаются мародерством, так еще и насилуют, мучают и жестоко убивают невинных детей и женщин. Знаешь сколько лет, самому маленькому изнасилованому ребенку? Два годика! Российская армия издевается над невинными людьми и обстреливает гражданские здания, не военные объекты. 
 ```
 
+    
+    
 ### - Maybe you have everything that your government has promised you (so the basics). You also have basic information from the internet... actually no, you don’t because Putin is taking away your basic right for freedom of speech. You can’t have access to global internet. You can’t protest. There is a lack of democracy and you wanna tell me about what your Putin is doing? Maybe go outside tomorrow and protest against Ukraine. Maybe, because he’s losing, he’ll let you?
 -  Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak jak masz podstawowe informacje w internecie. A nie…  Ty nie masz. To przecież twój putin odbiera Ci podstawowe prawo do wolności słowa. Nie możesz mieć internetu globalnego. Nie możesz protestować! Brak demokracji i ty mi chcesz coś tłumaczyć Co twój putin robi? Może wyjdź jutro i protestuj przeciw ukrainie. To może, że przegrywa to pozwoli?
 
