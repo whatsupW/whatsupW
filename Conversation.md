@@ -175,6 +175,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 
     https://www.gazeta.ru/culture/news/2022/04/14/n_17571506.shtml 
 ```
+    
 #### Ewentualnie tekst ze strony.
     
     В Минобороны РФ проинформировали о том, что ракетный крейсер «Москва», флагман Черноморского флота России затонул при буксировке в условиях шторма. Об этом сообщает ТАСС.
@@ -200,7 +201,6 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
     ...
     
 ```
-
     
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.mp4?raw=true
 https://user-images.githubusercontent.com/101053692/163648835-fa6ba3e7-9dfb-4110-8c77-c54db8225420.mp4
