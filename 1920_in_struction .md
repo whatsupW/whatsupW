@@ -5,7 +5,7 @@ Nasza strona powstała dla osób, które chcą pomóc Ukrainie a nie wiedzą jak
 Najlepszym liberalnym sposobem by wojna się zakończyła jest wytłumaczenie Rosjanom, że to nie jest "specjalna misja wojskowa". 
 Tylko ludobójcza wojna hutina. Sam nie umię rosyjskiego, korzystam z translatora google, co tłumaczę w pierwszej odpowiedzi.
 
-Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę hutina. Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
+Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę w mediach. Tam cały czas przedstawiają Ukrainę jako nazistów. Nawet o ludobójstwo w Buczy pokazaywali jako napaść Ukraińców by oskarżyć rosjan. Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
 
 ### Jak to zrobić?
 Nie znasz żadnego Rosjanina? To nie problem!
