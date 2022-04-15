@@ -54,7 +54,7 @@ https://translate.google.com/?sl=auto&tl=ru&op=translate
 
 
 ### This way, you can answer in Russian.
-    • I’m Pawel and I’m from Poland. What’s your name? What’s the situation like for you because what Putin is doing is not, as he calls it,  a “special military mission”.
+    • Im Pawel and Im from Poland. Whats your name? Whats the situation like for you because what Putin is doing is not, as he calls it,  a “special military mission”.
 
 I odpowiedz w rosyjskim języku… 
 • Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna.
