@@ -67,6 +67,8 @@ I odpowiedz w rosyjskim języku…
 Я с Польши, меня зовут Павел. А тебя как зовут? Какая у вас ситуация, потому что, то, что делает Путин, это никакая не специальная операция. 
 ```
 
+[<Movies - link>](https://github.com/whatsupW/whatsupW/blob/main/Filmy.md)
+
 ### In this example, change it to your name, so as not to give Russians the opportunity to create even more propaganda. Of course, the reply can be different, I’m just showing how I reply. If you don’t get an answer to a question, wait, maybe they will answer another one – maybe they will ask a smart question.
    
    - I don’t understand how you don’t see the war that’s going on. Why do you still believe Putin? Do you still think you’re saving Ukraine?
@@ -77,7 +79,10 @@ W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska teg
 ``` 
 Я не понимаю, почему Вы не видите этой войны? Почему дальше верите путину? Вы дальше считаете, что спасаете Украину? 
 ```
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
 
+https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
+    
 ### - But Ukrainians didn’t ask to be rescued because there are no Nazis or Bandera followers. All this was made up by Putin to excuse invading the Ukrainian territory! Now Ukrainians have to be saved FROM you!
 
 - Ale Ukraińcy nie prosili o ratunek. Bo na Ukrainie nie ma nazistów czy banderowców. To wszystko wymyślił Putin, aby usprawiedliwić wkroczenie wojska rosyjskiego na terytorium Ukrainy. Ratować teraz Ukraińców trzeba od was!
@@ -85,7 +90,8 @@ W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska teg
 ```
 украинцы не просили, чтобы их спасали. Потому что, в Украине нет нацистов или бендеровцев. Это все придумал путин, чтобы оправдать ввод российских войск на территорию Украины. Спасать украинцев теперь нужно от вас!!!
 ```
-
+[<Bucha - link>](<https://github.com/whatsupW/whatsupW/blob/main/Bucha.md>)
+    
 ### Now you could answer yourself: how did Ukraine disturb you? Putin has invaded and taken Crimea in 2014 and since then he has occupied Dombas. Russian propaganda has made it seem to Russian society as though there are Nazis there. Then, even we had our eyes closed. I don’t want to spread propaganda myself, however this all seems based on politics (let’s also not spread “Putinism”).
 
 Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 putin wkroczył na Ukrainę zajął Krym. Wtedy zaczął okupować Dombas i od tego czasu propaganda nastawiła rosyjskie społeczeństwo by uwierzyli, że tam są naziści.  Od tego momentu sami mieliśmy zamknięte oczy. Propagandowo bym powiedział, że to przez polityków, ale nie chce szerzyć putinozy.
@@ -95,7 +101,10 @@ Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 pu
 ```
 Весь мир помогает Украине. Ты задумывался, почему иностранные фирмы закрываются и убегают из России?
 ```
-
+![Miasta.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG)
+    
+    ![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
+    
 ### They will probably say that everything is okay. They’ve got sugar, cheap oil and gas (oil cost 20 rubles as of the 18th March 2022 as they produce it themselves). Putin doesn’t want to show that their situation is bad and so he keeps prices as they were so as not to cause panic. The economy is in fact crashing. You won’t probably convince them with this argument but it should make them curious to find out more.
 
 Pewnie powie, że wszystko jest ok maja cukier, tanią ropę i gaz (bo sami ją produkują, ropa na dzień 18 marzec była po 20 rubli. putin nie chce pokazać, że jest źle i im utrzymuje takie ceny by nie było paniki, gospodarka pada, ale chce by to przeszło w czasie, Ukraina tego nie ma. Tym argumentem ich nie przekonasz. Tym masz ich zaciekawić do rozmowy. 
