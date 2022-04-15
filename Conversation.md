@@ -171,8 +171,7 @@ https://user-images.githubusercontent.com/101053692/163639218-7ee7f8fb-d0f6-43da
 ```
 Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
 ```
-
-    #### Prześlij link, to jest rosyjska strona 
+#### Prześlij link, to jest rosyjska strona 
     
 
     https://www.gazeta.ru/culture/news/2022/04/14/n_17571506.shtml 
