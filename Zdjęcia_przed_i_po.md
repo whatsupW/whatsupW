@@ -40,3 +40,11 @@ Rankiem 2 marca wojska rosyjskie uderzyły w jeden z budynków Charkowskiego Uni
 ![Żytomierz, liceum n25](https://github.com/whatsupW/whatsupW/blob/main/img/1/4%20Kijowska%20wie%C5%BCa%20telewizyjna.png?raw=true)
 
 ![Mariupol](https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.jpg?raw=true)
+
+
+## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW>)
+
+https://github.com/whatsupW
