@@ -98,13 +98,18 @@ No i teraz są też osoby, które odpiszą. Są też osoby, które zapytają:
 - Ktoś ty?
 - Кто ты?
 
-  Other people exist who may say some offensive things to you and tell you to for example to go f*ck yourself...
-Don’t answer in the same way, even if you get mad. These are exactly the type of people who need to be reached – this is the root of the problem. These are the people who those, who understand what is going on, are scared of. You should react in a calm manner to every bad message you receive from one of them, better yet ask them a question.
+Other people exist who may say some offensive things to you and tell you to for example to go f*ck yourself... Don’t answer in the same way, even if you get mad. These are exactly the type of people who need to be reached – this is the root of the problem. These are the people who those, who understand what is going on, are scared of. You should react in a calm manner to every bad message you receive from one of them, better yet ask them a question.
   
-No i są też osoby, od których możesz usłyszeć na samym początku obraźliwe słowa np. spierdalaj … 
-Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
+No i są też osoby, od których możesz usłyszeć na samym początku obraźliwe słowa np. spierdalaj… Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie.
 
 ## Example of a conversation
   Przykład rozmowy
   
 https://github.com/whatsupW/whatsupW/blob/main/Conversation.md
+  
+## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md>)
+
+https://github.com/whatsupW
