@@ -176,6 +176,8 @@ https://user-images.githubusercontent.com/101053692/163639218-7ee7f8fb-d0f6-43da
 
     https://www.gazeta.ru/culture/news/2022/04/14/n_17571506.shtml 
 ```
+#### Ewentualnie tekst ze strony.
+    
     В Минобороны РФ проинформировали о том, что ракетный крейсер «Москва», флагман Черноморского флота России затонул при буксировке в условиях шторма. Об этом сообщает ТАСС.
 
 Ранее на ракетном крейсере «Москва» после пожара , который произошел 13 апреля, сдетонировал боезапас. По данным МО РФ, судно получило серьезные повреждения. Весь экипаж эвакуировали. Причины произошедшего устанавливаются. Президенту Владимиру Путину доложили о ситуации с крейсером, заявил его пресс-секретарь Дмитрий Песков.
@@ -185,8 +187,15 @@ https://user-images.githubusercontent.com/101053692/163639218-7ee7f8fb-d0f6-43da
 «Москва» — российский гвардейский ракетный крейсер, головной корабль проекта 1164 «Атлант». После списания противолодочного крейсера «Москва» проекта 1123 унаследовал его имя, став флагманом Черноморского флота.
    
 ```
+    Screan ze strony.
     
-   ### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
+    https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png?raw=true
+    
+    https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true
+    
+       #### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
+    
+    My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
     
 ```
     ...
