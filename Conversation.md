@@ -44,20 +44,25 @@ W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska teg
 
 Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 putin wkroczył na Ukrainę zajął Krym. Wtedy zaczął okupować Dombas i od tego czasu propaganda nastawiła rosyjskie społeczeństwo by uwierzyli, że tam są naziści.  Od tego momentu sami mieliśmy zamknięte oczy. Propagandowo bym powiedział, że to przez polityków, ale nie chce szerzyć putinozy.
 
+- Cały świat pomaga Ukrainie. Zastanawiałeś się czemu uciekają zagraniczne firmy z Rosji?
 - Весь мир помогает Украине. Ты задумывался, почему иностранные фирмы закрываются и убегают из России?
 
 Pewnie powie, że wszystko jest ok maja cukier, tanią ropę i gaz (bo sami ją produkują, ropa na dzień 18 marzec była po 20 rubli. putin nie chce pokazać, że jest źle i im utrzymuje takie ceny by nie było paniki, gospodarka pada, ale chce by to przeszło w czasie, Ukraina tego nie ma. Tym argumentem ich nie przekonasz. Tym masz ich zaciekawić do rozmowy. 
 
+- A czemu w internecie zamiast Waszych youtuberów i instegramowców pokazują brak cukru? Czemu nie macie internetu ogólno dostępnego, globalnego? Zastanawiałeś się nad tym?
 - Почему в интернете вместо ваших блогеров на ютюб и инстаграм показывают, что нет сахара в магазинах? Почему у вас нет полного и ничем не ограниченного доступа к интернету? Ты думал об этом?
 
 Jak powie, że internet jest to zapytaj:
+- A rzeczywistość jaką robi wasze wojsko to widzisz czy nie masz świadomości, że putin Wam blokuje i tylko telewizję oglądasz? Że wojsko rosyjskie wysyła przez kuriera białoruskiego złoto, komórki, telewizory?
+
 - Ты знаешь, что действительно делает российская армия в Украине? У тебя есть понимание того, что путин вам все блокирует и ты смотришь только телевизор, только то, что вам хотят показывать? Ты знаешь, что российская армия украденные в Украине вещи (золото, мобильные телефоны, телевизоры) высылает через белорусскую почту своим 
 семьям? 
 
-Oprócz tego, ze rosyjskie wojsko zajmuje się grabieżą, to jeszcze gwałci, torturuje i brutalnie zabija niewinne dzieci i kobiety. Wiesz, że najmłodsze zgwałcone dziecko ma 2 latka? 
-Rosyjskie wojsko nie tylko znęca się nad niewinnymi ludźmi, to jeszcze ostrzeliwuje cywilne budynki,a nie jak twierdzą, wojskowe obiekty.
+- Oprócz tego, ze rosyjskie wojsko zajmuje się grabieżą, to jeszcze gwałci, torturuje i brutalnie zabija niewinne dzieci i kobiety. Wiesz, że najmłodsze zgwałcone dziecko ma 2 latka? Rosyjskie wojsko nie tylko znęca się nad niewinnymi ludźmi, to jeszcze ostrzeliwuje cywilne budynki,a nie jak twierdzą, wojskowe obiekty.
 
--Кроме того, что российские военные занимаются мародерством, так еще и насилуют, мучают и жестоко убивают невинных детей и женщин. Знаешь сколько лет, самому маленькому изнасилованому ребенку? Два годика! Российская армия издевается над невинными людьми и обстреливает гражданские здания, не военные объекты. 
+- Кроме того, что российские военные занимаются мародерством, так еще и насилуют, мучают и жестоко убивают невинных детей и женщин. Знаешь сколько лет, самому маленькому изнасилованому ребенку? Два годика! Российская армия издевается над невинными людьми и обстреливает гражданские здания, не военные объекты. 
+
+
 -  Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak jak masz podstawowe informacje w internecie. A nie…  Ty nie masz. To przecież twój putin odbiera Ci podstawowe prawo do wolności słowa. Nie możesz mieć internetu globalnego. Nie możesz protestować! Brak demokracji i ty mi chcesz coś tłumaczyć Co twój putin robi? Może wyjdź jutro i protestuj przeciw ukrainie. To może, że przegrywa to pozwoli?
 
 -  Может у тебя есть все, чем правительство хочет тебя обеспечить. То есть основные вещи. Так как основная информация в интернете. A нет. У тебя нет всего. Ведь твой путин отбирает у тебя элементарное право на свободу слова. У тебя нет глобального интернета. У тебя нет возможности протестовать. У вас нет демократии и ты мне хочешь объяснить, что делает твой путин? Может завтра выйди на улицу и протестуй против своего правительства? Может путин разрешит, раз проигрывает войну?
