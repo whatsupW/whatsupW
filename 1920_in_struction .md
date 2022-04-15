@@ -6,7 +6,7 @@ Najlepszym liberalnym sposobem by wojna się zakończyła jest wytłumaczenie Ro
 Tylko ludobójcza wojna hutina. Sam nie umię rosyjskiego, korzystam z translatora google, co tłumaczę w pierwszej odpowiedzi.
 
 Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę w mediach. Tam cały czas przedstawiają Ukrainę jako nazistów. Nawet o ludobójstwie w Buczy opowiadali, że to napaść Ukraińców by oskarżyć rosjan. 
-Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzi.
+Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzisz.
 
 ### Jak to zrobić?
 Nie znasz żadnego Rosjanina? To nie problem!
