@@ -18,9 +18,10 @@ Wolę mój myr, rosyjskiego nie potrzebuję.
 ## Do you want to send us an idea, text, photos or videos? Post on Twitter @ nowar93497824
 Chcesz przesłać nam pomysł, text, zdjęcia lun filmiki? Napisz na Twitter @nowar93497824
 
+
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence>)
+[<Readme.md>](<https://github.com/whatsupW>)
 
-https://github.com/whatsupW#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence
+https://github.com/whatsupW
