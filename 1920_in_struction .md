@@ -65,4 +65,5 @@ No i są też osoby, od których możesz usłyszeć na samym początku obraźliw
 Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie:
 
 ## Przykład rozmowy
-link
+  
+https://github.com/whatsupW/whatsupW/blob/main/Conversation.md
