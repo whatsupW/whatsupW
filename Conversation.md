@@ -26,6 +26,8 @@ No i teraz są też osoby, które odpiszą. Osoby, które zapytają:
 ```
     •  Кто ты?
 ```
+#### By clicking on the Russian text - the copy icon will appear at the end.
+Klikając w rosyjski tekst  - na końcu pojawi się ikonka kopiowania.
 
 ### Other people exist who may say some offensive things to you and tell you to for example to go f*ck yourself... 
 Don’t answer in the same way, even if you get mad. These are exactly the type of people who need to be reached – this is the root of the problem. These are the people who those, who understand what is going on, are scared of. You should react in a calm manner to every bad message you receive from one of them, better yet ask them a question.
