@@ -54,16 +54,17 @@ https://translate.google.com/?sl=auto&tl=ru&op=translate
 
 
 ### This way, you can answer in Russian.
-    - I’m Pawel and I’m from Poland. What’s your name? What’s the situation like for you because what Putin is doing is not, as he calls it,  a “special military mission”.
+    • I’m Pawel and I’m from Poland. What’s your name? What’s the situation like for you because what Putin is doing is not, as he calls it,  a “special military mission”.
 
 I odpowiedz w rosyjskim języku… 
-- Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna.
+• Jestem z Polski mam na imię Paweł. A ty jak masz na imię? I jaka u Was sytuacja bo to co robi putin to wcale nie jest misja specjalna.
 
 • Я с Польши, меня зовут Павел. А тебя как зовут? Какая у вас ситуация, потому что, то, что делает Путин, это никакая не специальная операция. 
 
 
 ### In this example, change it to your name, so as not to give Russians the opportunity to create even more propaganda. Of course, the reply can be different, I’m just showing how I reply. If you don’t get an answer to a question, wait, maybe they will answer another one – maybe they will ask a smart question.
-    - I don’t understand how you don’t see the war that’s going on. Why do you still believe Putin? Do you still think you’re saving Ukraine?
+   
+   - I don’t understand how you don’t see the war that’s going on. Why do you still believe Putin? Do you still think you’re saving Ukraine?
     
 W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska tego nie wykorzystała. Wiadomo, odpowiedź może być inna. Ja pokazuję jak odpowiadałem. Jak nie będziesz miał odpowiedzi na pytanie to poczekaj, może odpiszą na inne. A może zadadzą Ci mądre pytanie. 
 - Nie rozumiem czemu Wy nie widzicie tej wojny? Czemu dalej wierzycie putinowi? Czy dalej uważasz, że ratujecie Ukrainę?
