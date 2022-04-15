@@ -82,7 +82,7 @@ https://user-images.githubusercontent.com/101053692/157620346-f1861156-13f4-48c3
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence>)
+[<Readme.md>](<https://github.com/whatsupW>)
 
-https://github.com/whatsupW#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence
+https://github.com/whatsupW
 
