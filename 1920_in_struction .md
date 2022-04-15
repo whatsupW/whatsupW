@@ -17,7 +17,7 @@ Wchodzisz na stronę https://1920.in wybierasz sam metodę jaką chcesz użyć. 
 
 ![test_52](https://user-images.githubusercontent.com/101053692/163461096-8331dd53-1dd1-4c48-9035-72333d922ee2.png)
 
-## Metody do wyboru
+## W jaki sposób?
 
 ![1920](https://user-images.githubusercontent.com/101053692/163460405-cc099c1d-bb93-4432-8dd9-32e4ba87b76a.png)
 
@@ -28,8 +28,22 @@ Chyba nie trzeba tłumaczyć. :)
 Osobiście myślę, że jest to najlepszy sposób (ale to moje zdanie). Możesz pisać, wysyłać filmiki a dodatkowo bez kosztów i widzisz kto przeczytał. Treści i filmy możesz znaleźć na naszej stronie.
 
 ## SEND EMAIL
-Możesz wysłać email, ale tu  trzeba napisać więcej treści Tu masz jedną wersję maila również w PDF. 
-Każda poczta ma swoje ograniczenia, np. gmail 100 maili dziennie więc się nie zdziw, że po paru wysłanych mailach zaczną przychodzić powiadomienia, że poczta nie dotarła.
+Możesz wysłać email, ale tu  trzeba napisać więcej treści Tu masz przykład naszego pierwszego listu
+
+[< Letter to Russia of March 2022 - link>](<https://github.com/whatsupW/whatsupW/blob/main/Dear_Russians.md>)
+
+również w PDF. 
+
+English version 
+[<LetterUS - link>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeUS.md>) 
+
+Polska wersja
+[<ListPL - link>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMePL.md>)
+
+Russian version
+[<LetterRU - link>](<https://github.com/whatsupW/whatsupW/blob/main/ReadMeRus.md>)
+
+UWAGA!. Każda poczta ma swoje ograniczenia, np. w gmail można wysłać tylko 100 maili dziennie więc się nie zdziw, że po paru wysłanych mailach zaczną przychodzić powiadomienia, że poczta nie dotarła.
 
 ## CALL
 Dużo ludzi korzysta z tej opcji, ale tylko te co rozmawiają po rosyjsku. Nie umiesz wybierz opcje powyższe.
