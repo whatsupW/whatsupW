@@ -249,13 +249,13 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.m
 
 https://user-images.githubusercontent.com/101053692/163678345-cea2bd0a-b89b-4a76-b3d8-7ddf0139c8f7.mp4
 
-#### Further examples. The website is still under construction. Następne przykłady. Strona w budowie jeszcze powstaje.
+## Further examples. The website is still under construction. Następne przykłady. Strona w budowie jeszcze powstaje.
     
 [The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md) 
     
 https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md
    
-#### Crimes of Russians
+## Crimes of Russians
 Zbrodnie rosjan
     
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/zbrodnie.md
