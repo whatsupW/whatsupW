@@ -27,6 +27,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Kharkiv_bomba_na_cyw
 
 https://user-images.githubusercontent.com/101053692/162839049-79bb1fcb-7a0f-48d6-a3f4-fd0469b79d67.mp4
 
+## Rosyjcsy żołnierze zostawiają swoich. A rannych dobijają.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
+
+
 ## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD
 UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT
 
