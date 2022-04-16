@@ -135,6 +135,7 @@ Pewnie powie, że wszystko jest ok maja cukier, tanią ropę i gaz (bo sami ją 
 ### If they say, that they have internet, ask:
 
 - So do you know the reality of what your military is doing or do you have no idea that Putin is blocking all this information and instead you just what they show on TV? Do you know that the Russian military is sending gold, phones and TVs through Belarusian couriers?
+
 Jak powie, że internet jest to zapytaj:
 - A rzeczywistość jaką robi wasze wojsko to widzisz czy nie masz świadomości, że putin Wam blokuje i tylko telewizję oglądasz? Że wojsko rosyjskie wysyła przez kuriera białoruskiego złoto, komórki, telewizory?
 
@@ -142,7 +143,7 @@ Jak powie, że internet jest to zapytaj:
 Ты знаешь, что действительно делает российская армия в Украине? У тебя есть понимание того, что путин вам все блокирует и ты смотришь только телевизор, только то, что вам хотят показывать? Ты знаешь, что российская армия украденные в Украине вещи (золото, мобильные телефоны, телевизоры) высылает через белорусскую почту своим семьям? 
 ```
     
-# On the TV they’re probably telling you that Ukrainians have killed civilians in Bucza. The reality is very different. Your soldiers received such a command. Satellite pictures even show that bodies were lying on the ground before the actual massacre.
+### On the TV they’re probably telling you that Ukrainians have killed civilians in Bucza. The reality is very different. Your soldiers received such a command. Satellite pictures even show that bodies were lying on the ground before the actual massacre.
     
 W telewizji pewnie słyszałeś, że to Ukraince zabili cywili w Buczy. A fakty są inne. To Wasi żołnierze mieli taki rozkaz. Zdjęcia satelitarne też pokazują, że ciała leżały już prędzej.
     
@@ -176,9 +177,9 @@ Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak 
 Может у тебя есть все, чем правительство хочет тебя обеспечить. То есть основные вещи. Так как основная информация в интернете. A нет. У тебя нет всего. Ведь твой путин отбирает у тебя элементарное право на свободу слова. У тебя нет глобального интернета. У тебя нет возможности протестовать. У вас нет демократии и ты мне хочешь объяснить, что делает твой путин? Может завтра выйди на улицу и протестуй против своего правительства? Может путин разрешит, раз проигрывает войну?
 ```
 
-### - Is this not making you question things? Why is your government trying to create another North Korea? Do you know that country? They have communism there. I personally prefer democracy – no oligarchs, who work alongside Putin. Everyone can do whatever they want, everyone can go wherever they want. This is freedom. Because of Putin’s war, you can’t have that. 
+### Is this not making you question things? Why is your government trying to create another North Korea? Do you know that country? They have communism there. I personally prefer democracy – no oligarchs, who work alongside Putin. Everyone can do whatever they want, everyone can go wherever they want. This is freedom. Because of Putin’s war, you can’t have that. 
 
-- Nie daje ci to do myślenia? Czemu twój rząd chce z Was zrobić Koreje? Znasz ten kraj? Tam też jest komunizm. Ja wolę demokrację. Nie ma oligarchów, którzy działają z putinem i każdy może zarabiać, jeździć po świecie. To jest wolność. A wy przez putinowską wojnę nie możecie.
+Nie daje ci to do myślenia? Czemu twój rząd chce z Was zrobić Koreje? Znasz ten kraj? Tam też jest komunizm. Ja wolę demokrację. Nie ma oligarchów, którzy działają z putinem i każdy może zarabiać, jeździć po świecie. To jest wolność. A wy przez putinowską wojnę nie możecie.
 
 ```
 И это тебя не наводит ни на какую мысль? Почему ваше правительство хочет из России сделать Северную Корею. Ты же знаешь эту страну. Там тоже коммунизм. Я предпочитаю демократию. Нет олигархов, которые сотрудничают с путиным, каждый может зарабатывать, ездить по миру. Это и есть свобода. А у вас ее нет из-за развязанной путиным войны. 
@@ -190,7 +191,7 @@ Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak 
 ```
 Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
 ```
-####  
+####  After missiles struck Moscow, the TV said it was just a fire. And when it sank, it was an attack on Russia. Have you been murdering Ukraine for two months? Can you see the truth only by the accident of the sinking and the error of propaganda on TV?
     
 Po uderzeniu pocisków na okręt Moskwa, w telewizji mówili, że to tylko pożar. A jak zatonął to, że to atak na rosję. Czy od dwóch miesięcy nie mordujecie Ukrainy? Czy tylko przez przypadek zatonięcia i bład propagandy w telewizji możesz zobaczyć prawdę
     
