@@ -47,7 +47,9 @@ https://user-images.githubusercontent.com/101053692/163692659-287239b7-96b5-4d0d
 
 ## Tłumaczy 2
 
-# Tłumaczy 3
+
+
+## Tłumaczy 3
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy3.mp4?raw=true
 
