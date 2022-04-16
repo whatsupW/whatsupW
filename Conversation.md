@@ -92,6 +92,11 @@ https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495
 ```
 [<Bucha - link>](<https://github.com/whatsupW/whatsupW/blob/main/Bucha.md>)
     
+    
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
+    
 ### Now you could answer yourself: how did Ukraine disturb you? Putin has invaded and taken Crimea in 2014 and since then he has occupied Dombas. Russian propaganda has made it seem to Russian society as though there are Nazis there. Then, even we had our eyes closed. I don’t want to spread propaganda myself, however this all seems based on politics (let’s also not spread “Putinism”).
 
 Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 putin wkroczył na Ukrainę zajął Krym. Wtedy zaczął okupować Dombas i od tego czasu propaganda nastawiła rosyjskie społeczeństwo by uwierzyli, że tam są naziści.  Od tego momentu sami mieliśmy zamknięte oczy. Propagandowo bym powiedział, że to przez polityków, ale nie chce szerzyć putinozy.
