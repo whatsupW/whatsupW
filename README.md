@@ -92,3 +92,10 @@ English version
 
 Russian version
 [<LetterRU.pdf - link>](<https://github.com/whatsupW/whatsupW/blob/main/Dear%20RussiansRU.pdf?raw=true>)
+
+  ## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW/whatsupW>)
+
+https://github.com/whatsupW
