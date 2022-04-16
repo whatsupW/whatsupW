@@ -191,7 +191,7 @@ Nie daje ci to do myślenia? Czemu twój rząd chce z Was zrobić Koreje? Znasz 
 ```
 Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
 ```
-####  After missiles struck Moscow, the TV said it was just a fire. And when it sank, it was an attack on Russia. Have you been murdering Ukraine for two months? Can you see the truth only by the accident of the sinking and the error of propaganda on TV?
+####  After missiles struck the ship Moscow, the TV said it was just a fire. And when it sank, it was suddenly an attack on Russia. Haven’t you been murdering Ukraine for two months? Can you see the truth only because of the sinking of the ship and the error of propaganda on TV?
     
 Po uderzeniu pocisków na okręt Moskwa, w telewizji mówili, że to tylko pożar. A jak zatonął to, że to atak na rosję. Czy od dwóch miesięcy nie mordujecie Ukrainy? Czy tylko przez przypadek zatonięcia i bład propagandy w telewizji możesz zobaczyć prawdę
     
