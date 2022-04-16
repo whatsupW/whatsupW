@@ -22,7 +22,7 @@ https://user-images.githubusercontent.com/101053692/162839225-aff7a4ca-7c81-47da
 
 ## Rosyjscy żołnierze oprócz mordów na cywilach, gwałtach to jeszcze kradną. Okradają co popadnie i z Białorusi wysyłają kurierem do domu. Tak wygląda ta wasza misja specjalna.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Kradna.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Kradna.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163693283-61cfccb8-aa73-4fe5-9952-ef88ad993cbc.mp4
 
@@ -38,8 +38,8 @@ https://user-images.githubusercontent.com/101053692/162839049-79bb1fcb-7a0f-48d6
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
 
 
-## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD
-UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT
+## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD - Don't send it via Whatsup, they'll block you
+UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT - Nie wysyłaj tego przez Whatsup co Cię zablokują
 
 ## Bucha. Burned bodies
 Bucza. Spalone ciała 
