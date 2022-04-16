@@ -147,7 +147,7 @@ Jak powie, że internet jest to zapytaj:
 
 https://user-images.githubusercontent.com/101053692/163636238-49aa1cfe-3965-488d-99df-ef2c947cc5fc.mp4
 
-    https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163639218-7ee7f8fb-d0f6-43da-aa90-0e45ce130b10.mp4
     
