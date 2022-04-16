@@ -75,6 +75,11 @@ UWAGA!. Każda poczta ma swoje ograniczenia, np. w gmail można wysłać tylko 1
 Many people choose this option but this is only a good one for people who speak Russian – if you can’t, better choose one of the above.
   
 Dużo ludzi korzysta z tej opcji, ale tylko te co rozmawiają po rosyjsku. Nie umiesz wybierz opcje powyższe.
+  
+  ## VIBER
+  Like WHATSUP
+  
+  Podobnie jak WHATSUP
 
 ## The idea is to clarify to Russians, as they aren’t aware due to the propaganda that is spread in their media. If you want to annoy Russians then DO NOT USE OUR HELP as you will just harm the cause.
   
