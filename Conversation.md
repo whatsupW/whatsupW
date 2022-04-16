@@ -212,8 +212,8 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png?raw=true
 ![Moskwa1](https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png)
     
 https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true  
-  
- ![Moskwa2](https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png)   
+
+![Moskwa2](https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png)   
 
     
 #### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
@@ -225,10 +225,10 @@ My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co rob
     
 ```
     
-    https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png
+https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.mp4?raw=true
     
-    https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png
+https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png
 https://user-images.githubusercontent.com/101053692/163648835-fa6ba3e7-9dfb-4110-8c77-c54db8225420.mp4
 
 
