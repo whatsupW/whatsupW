@@ -209,7 +209,7 @@ Prześlij link, to jest rosyjska strona
 Ewentualnie tekst ze strony.
 
 ```
-    В Минобороны РФ проинформировали о том, что ракетный крейсер «Москва», флагман Черноморского флота России затонул при буксировке в условиях шторма. Об этом сообщает ТАСС.
+В Минобороны РФ проинформировали о том, что ракетный крейсер «Москва», флагман Черноморского флота России затонул при буксировке в условиях шторма. Об этом сообщает ТАСС.
 
 Ранее на ракетном крейсере «Москва» после пожара , который произошел 13 апреля, сдетонировал боезапас. По данным МО РФ, судно получило серьезные повреждения. Весь экипаж эвакуировали. Причины произошедшего устанавливаются. Президенту Владимиру Путину доложили о ситуации с крейсером, заявил его пресс-секретарь Дмитрий Песков.
 
@@ -231,7 +231,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true
     
 #### You’ve got an example of how they’re lying. Look how they’re suddenly talking about the ship that sank. We’re not against you. You have to understand that. Putin doesn’t know what else to do now. He wants to start WWIII and he will say that Nazis and the USA have started it. And you’re just gonna sit and watch helplessly, thinking that the world has gone crazy? He’s going to start the next world war in order not to show weakness. Do you not have enough evidence? 
     
-    Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
+Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
     
 ```
     ...
@@ -241,8 +241,9 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.m
 
 https://user-images.githubusercontent.com/101053692/163678345-cea2bd0a-b89b-4a76-b3d8-7ddf0139c8f7.mp4
 
+#### Further examples. The website is still under construction. Następne przykłady. Strona w budowie jeszcze powstaje.
     
-[The next arguments - link>](https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md)
+[The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md) 
     
 https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md
     
