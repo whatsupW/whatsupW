@@ -1,7 +1,7 @@
 #  How to help Ukraine with [1920.in](https://1920.in)?
 Jak pomóc Ukrainie z [1920.in](https://1920.in).
 
-[1920_in_struction - link](https://github.com/whatsupW/whatsupW/blob/main/1920_in_struction.md
+[1920_in_struction - link](https://github.com/whatsupW/whatsupW/blob/main/1920_in_struction.md)
 
 ## Conversation
 Rozmowa
@@ -12,9 +12,7 @@ Rozmowa
 ## Further examples. The website is still under construction. Następne przykłady. Strona w budowie jeszcze powstaje.
     
 [The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md) 
-    
-https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md
- 
+     
  
 ## Crimes of Russians
 Zbrodnie rosjan
