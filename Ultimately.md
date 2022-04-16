@@ -22,6 +22,8 @@ https://user-images.githubusercontent.com/101053692/163694342-b713bd41-605e-4b02
 
 ## Wojna w 3, 4 dni
 
+https://github.com/whatsupW/whatsupW/blob/main/img/3/3_4dni.mp4
+
 ## Moskwa
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa.mp4
