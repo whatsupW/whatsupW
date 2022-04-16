@@ -105,6 +105,19 @@ Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 pu
     
 ![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
     
+    
+    ### Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. 
+    
+
+https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf-9bd7-7634a1261915.mp4
+
+
+
+https://user-images.githubusercontent.com/101053692/163653810-636ab760-140a-4cec-be67-7c5b5f19c70a.mp4
+
+    
+    Zagrali dla Ukrainy i to bez swoich słów. Nie daje Wam Rosjanom do myślenia? Nagle cały świat przeciwko Wam... Właśnie nie Wam a przeciwko waszemu rządowi to robimy. To my wiemy, że po 22 latach człowieka z KGB i jedo rząd trzeba usunąć. To nie my chcemy jego metodammi Was oswobodzić. To Putin jak sobie nie radzi, dąrzy po dwóch miesiącach do wojny. Wymusza tą sytuację. Dlatego my jako świat prosimy: ogrnij się i wreszczie mniej móc mieć swoje zdanie. Bądź za demokracją, czyli za rządami, na które masz wpływ a nie tylko putin i oligarchowie. 
+    
 ### They will probably say that everything is okay. They’ve got sugar, cheap oil and gas (oil cost 20 rubles as of the 18th March 2022 as they produce it themselves). Putin doesn’t want to show that their situation is bad and so he keeps prices as they were so as not to cause panic. The economy is in fact crashing. You won’t probably convince them with this argument but it should make them curious to find out more.
 
 Pewnie powie, że wszystko jest ok maja cukier, tanią ropę i gaz (bo sami ją produkują, ropa na dzień 18 marzec była po 20 rubli. putin nie chce pokazać, że jest źle i im utrzymuje takie ceny by nie było paniki, gospodarka pada, ale chce by to przeszło w czasie, Ukraina tego nie ma. Tym argumentem ich nie przekonasz. Tym masz ich zaciekawić do rozmowy. 
