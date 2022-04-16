@@ -101,6 +101,7 @@ Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 pu
 
 - The whole world is helping Ukraine. Have you thought about why international companies are escaping Russia?
 - Cały świat pomaga Ukrainie. Zastanawiałeś się czemu uciekają zagraniczne firmy z Rosji?
+
 ```
 Весь мир помогает Украине. Ты задумывался, почему иностранные фирмы закрываются и убегают из России?
 ```
