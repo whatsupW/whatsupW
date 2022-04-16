@@ -193,7 +193,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 Tekst
 ```
     
-    Prześlij link, to jest rosyjska strona 
+Prześlij link, to jest rosyjska strona 
     
 ```
     https://www.gazeta.ru/culture/news/2022/04/14/n_17571506.shtml 
