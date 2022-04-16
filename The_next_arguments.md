@@ -18,6 +18,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Kaza%C5%82a_gwalcic3.jpg
 
 ![Kazała gwałcić3.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Kaza%C5%82a_gwalcic3.jpg)
 
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Kazala_gwalcic2.mp4?raw=true
 
 ## Back to main page
 Powrót do strony głównej
