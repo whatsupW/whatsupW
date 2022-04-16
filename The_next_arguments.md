@@ -33,6 +33,18 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Protest.mp4
 
 https://user-images.githubusercontent.com/101053692/163690401-db96dc08-d01a-46c9-8ddc-222f13ce9e2c.mp4
 
+## Znasz Oleg Orłow? 12.04.2022 Oleg Orłow jest przewodniczącym Centrum Praw Człowieka – Memoriał. Memoriał był największą organizacją praw człowieka w Rosji. Został zamknięty w zeszłym tygodniu na rozkaz Valdolfa Pultera... A czemu? Za prawdę
+
+![Kazała gwałcić2.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/3/Oleg_Orlow.jpg)
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Oleg_Orlow.jpg
+
+## Tłumaczy
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy.mp4
+
+https://user-images.githubusercontent.com/101053692/163692659-287239b7-96b5-4d0d-a7f9-2ed30fbf690a.mp4
+
 
 
 ## Prezydent Zełeński do rosjan
