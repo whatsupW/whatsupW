@@ -118,7 +118,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg?raw=true
 
 https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf-9bd7-7634a1261915.mp4
 
-https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf-9bd7-7634a1261915.mp4?raw=true
+https://github.com/whatsupW/whatsupW/blob/main/Solidarni/Pink_Floyd.mp4?raw=true
 
 
     
