@@ -55,7 +55,19 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy3.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163692963-b91b4f6b-b4d4-458f-b5a5-abbb24957e1c.mp4
 
+## Tłumaczy 4
 
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy4.mp4?raw=true
+
+
+https://user-images.githubusercontent.com/101053692/163693989-5d7960dd-c52e-42d1-a173-56b500edffa4.mp4
+
+
+## Tłumaczy 5
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy5.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/163694010-3fe86894-c16a-4176-8eb6-7d53bb9c09a0.mp4
 
 ## Prezydent Zełeński do rosjan
 
