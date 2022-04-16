@@ -21,7 +21,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Kaza%C5%82a_gwalcic3.jpg
 ## Film z Youtuba tłumaczący wszystko 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Kazala_gwalcic2.mp4?raw=true
 
+## Cywile sami są wstanie zatrzymać czołg, by nie wjechał do miasta.
 
+https://github.com/whatsupW/whatsupW/blob/main/img/zatrzymaliCzolg.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33-a760-7cfc4ad32f8e.mp4
 
 ## A tacy odważni jesteście wy.
 
