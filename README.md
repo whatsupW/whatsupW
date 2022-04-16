@@ -1,4 +1,28 @@
-# Texts to Russians that you can copy and send eg Whatsup wa.1920.in as a response to their propaganda. You do not know Russian, use the translator. And here's the evidence.
+#  How to help Ukraine with [1920.in](https://1920.in)?
+Jak pomóc Ukrainie z [1920.in](https://1920.in).
+
+[1920_in_struction - link](https://github.com/whatsupW/whatsupW/blob/main/1920_in_struction.md
+
+## Conversation
+Rozmowa
+
+[Conversation - link](https://github.com/whatsupW/whatsupW/blob/main/Conversation.md)
+
+
+## Further examples. The website is still under construction. Następne przykłady. Strona w budowie jeszcze powstaje.
+    
+[The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md) 
+    
+https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md
+ 
+ 
+## Crimes of Russians
+Zbrodnie rosjan
+    
+[The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/zbrodnie.md)
+
+
+## Texts to Russians that you can copy and send eg Whatsup wa.1920.in as a response to their propaganda. You do not know Russian, use the translator. And here's the evidence.
 
 Teksty do Rosjan, które możesz skopiować i wysłać np Whatsup wa.1920.in jako odpowiedź na ich propagandę. Nie znasz rosyjskiego używaj translatora. A tu znajdziesz dowody.
 
