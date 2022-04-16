@@ -79,9 +79,7 @@ W tym przykładzie zmień na swoje imię, by za chwilę poropaganda rosyjska teg
 ``` 
 Я не понимаю, почему Вы не видите этой войны? Почему дальше верите путину? Вы дальше считаете, что спасаете Украину? 
 ```
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
 
-https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
     
 ### - But Ukrainians didn’t ask to be rescued because there are no Nazis or Bandera followers. All this was made up by Putin to excuse invading the Ukrainian territory! Now Ukrainians have to be saved FROM you!
 
