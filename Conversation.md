@@ -187,7 +187,13 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 ```
 Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
 ```
-#### Prześlij link, to jest rosyjska strona 
+#### Po uderzeniu pocisków na okręt Moskwa, w telewizji mówili, że to tylko pożar. A jak zatonął to, że to atak na rosję. Czy od dwóch miesięcy nie mordujecie Ukrainy? Czy tylko przez przypadek zatonięcia i bład propagandy w telewizji możesz zobaczyć prawdę
+    
+```
+Tekst
+```
+    
+    Prześlij link, to jest rosyjska strona 
     
 ```
     https://www.gazeta.ru/culture/news/2022/04/14/n_17571506.shtml 
@@ -224,12 +230,6 @@ My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co rob
     ...
     
 ```
-    
-https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.mp4?raw=true
-    
-https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png
-https://user-images.githubusercontent.com/101053692/163648835-fa6ba3e7-9dfb-4110-8c77-c54db8225420.mp4
 
 
     
