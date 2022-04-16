@@ -7,7 +7,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Solidarni_flagi.mp4
 
 https://user-images.githubusercontent.com/101053692/163694324-e70298c7-5336-491c-aa9b-eecd770fc38c.mp4
 
-## O to naziści twoi.
+## O to twoi naziści.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Nazisci.mp4
 
