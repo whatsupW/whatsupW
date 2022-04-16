@@ -106,8 +106,11 @@ Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 pu
 ```
 ![Miasta.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG)
     
+    https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG?raw=true
+    
 ![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
     
+    https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg?raw=true
     
     ### Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. 
     
@@ -117,8 +120,7 @@ https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf
 https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf-9bd7-7634a1261915.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163653810-636ab760-140a-4cec-be67-7c5b5f19c70a.mp4
-    
-    
+        
 https://user-images.githubusercontent.com/101053692/163653810-636ab760-140a-4cec-be67-7c5b5f19c70a.mp4?raw=true
 
     
