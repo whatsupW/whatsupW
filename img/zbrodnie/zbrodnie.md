@@ -20,6 +20,12 @@ https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_chwali_sie_telef
 
 https://user-images.githubusercontent.com/101053692/162839225-aff7a4ca-7c81-47da-bbf9-1f88a11df186.mp4
 
+## Rosyjscy żołnierze oprócz mordów na cywilach, gwałtach to jeszcze kradną. Okradają co popadnie i z Białorusi wysyłają kurierem do domu. Tak wygląda ta wasza misja specjalna.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Kradna.mp4
+
+https://user-images.githubusercontent.com/101053692/163693283-61cfccb8-aa73-4fe5-9952-ef88ad993cbc.mp4
+
 ## Kharkov. Cluster bomb
 Charków. Bomba kasetowa
 
