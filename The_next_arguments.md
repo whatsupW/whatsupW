@@ -29,7 +29,7 @@ https://user-images.githubusercontent.com/101053692/157272847-75972874-6e8e-4d33
 
 ## A tacy odważni jesteście wy.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Protest.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Protest.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163690401-db96dc08-d01a-46c9-8ddc-222f13ce9e2c.mp4
 
@@ -41,9 +41,17 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Oleg_Orlow.jpg
 
 ## Tłumaczy
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163692659-287239b7-96b5-4d0d-a7f9-2ed30fbf690a.mp4
+
+## Tłumaczy 2
+
+# Tłumaczy 3
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Tlumaczy3.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/163692963-b91b4f6b-b4d4-458f-b5a5-abbb24957e1c.mp4
 
 
 
