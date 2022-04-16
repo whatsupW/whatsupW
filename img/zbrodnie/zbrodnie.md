@@ -6,6 +6,8 @@ Ruskie pozostwiają zwłoki swoich żołnierzy.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
 
+![Rosjanie_zostawiają_swoich_zolnierzy](https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4)
+
 ## Intercepted conversation between the Russian commander and the soldier to kill civilians.
 Przechwycona rozmowa dowódcy rosjan z żołnierzem, by zabijać cywili. 
 
