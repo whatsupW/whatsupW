@@ -64,3 +64,9 @@ Putin nie przyzna się, że zrobił błąd napadając na Ukrainę. Dlatego też 
 
 Samozwańcze Republiki to mu było mało
 
+## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW/whatsupW>)
+
+https://github.com/whatsupW
