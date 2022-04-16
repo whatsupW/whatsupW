@@ -156,7 +156,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_zdjecia.mp4?raw=true
 https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
     
 
-### - Other than the Russian military being engaged in looting, they are also raping, torturing and brutally killing innocent children and women. Did you know that the youngest raped child was 2 years old? The Russian military doesn’t only abuse innocent people but they also shoot civil buildings and not just as they claim military objects.
+### Other than the Russian military being engaged in looting, they are also raping, torturing and brutally killing innocent children and women. Did you know that the youngest raped child was 2 years old? The Russian military doesn’t only abuse innocent people but they also shoot civil buildings and not just as they claim military objects.
 
 - Oprócz tego, ze rosyjskie wojsko zajmuje się grabieżą, to jeszcze gwałci, torturuje i brutalnie zabija niewinne dzieci i kobiety. Wiesz, że najmłodsze zgwałcone dziecko ma 2 latka? Rosyjskie wojsko nie tylko znęca się nad niewinnymi ludźmi, to jeszcze ostrzeliwuje cywilne budynki,a nie jak twierdzą, wojskowe obiekty.
 
@@ -166,7 +166,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 
     
     
-### - Maybe you have everything that your government has promised you (so the basics). You also have basic information from the internet... actually no, you don’t because Putin is taking away your basic right for freedom of speech. You can’t have access to global internet. You can’t protest. There is a lack of democracy and you wanna tell me about what your Putin is doing? Maybe go outside tomorrow and protest against Ukraine. Maybe, because he’s losing, he’ll let you?
+### Maybe you have everything that your government has promised you (so the basics). You also have basic information from the internet... actually no, you don’t because Putin is taking away your basic right for freedom of speech. You can’t have access to global internet. You can’t protest. There is a lack of democracy and you wanna tell me about what your Putin is doing? Maybe go outside tomorrow and protest against Ukraine. Maybe, because he’s losing, he’ll let you?
 -  Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak jak masz podstawowe informacje w internecie. A nie…  Ty nie masz. To przecież twój putin odbiera Ci podstawowe prawo do wolności słowa. Nie możesz mieć internetu globalnego. Nie możesz protestować! Brak demokracji i ty mi chcesz coś tłumaczyć Co twój putin robi? Może wyjdź jutro i protestuj przeciw ukrainie. To może, że przegrywa to pozwoli?
 
 ```
@@ -205,15 +205,18 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 «Москва» — российский гвардейский ракетный крейсер, головной корабль проекта 1164 «Атлант». После списания противолодочного крейсера «Москва» проекта 1123 унаследовал его имя, став флагманом Черноморского флота.   
 ```
     
-    Screen ze strony.
+Screen ze strony.
     
-    https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png?raw=true
+https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png?raw=true
     
-    https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true  
+![Moskwa1](https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa1.png)
+    
+https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true  
   
- ``` ... ```
+ ![Moskwa2](https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png)   
+
     
-    #### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
+#### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
     
     My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
     
