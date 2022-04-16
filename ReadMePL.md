@@ -75,4 +75,9 @@ Dołącz do nich
 ![ProtestTajlandia_1](https://user-images.githubusercontent.com/101053692/157304648-96cab81c-abd1-4539-aec5-6528c4d12e13.jpg)
 ![ProtestIzrael_1](https://user-images.githubusercontent.com/101053692/157304352-e9a2fade-aecf-4d67-bf85-9dcb268ca4c8.jpg)
 
+## Back to main page
+Powrót do strony głównej
 
+[<Readme.md>](<https://github.com/whatsupW/whatsupW>)
+
+https://github.com/whatsupW
