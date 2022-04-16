@@ -6,6 +6,11 @@ Ruskie pozostwiają zwłoki swoich żołnierzy.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
 
+## Ukraiński rząd przechowuje zwłoki rosjan, których twój rząd nie chce odebrać. Nie przyznają się do takich strat. Putin już w 2015 podpisał dekret, że wszystkie zgony w wojskach będą objęte tajemnicą państwową. Co mają powiedzieć matki czy żony tych żołnierzy? Powstał kanał na Telegramie gdzie one mogą szukać, rozpoznać po zdjęciu swoich synów i męzów. Komitet Matek Żołnierzy. Kanał ten utworzył Ministerswto Spraw Wewnętrznych Ukrainy. Nie twój putinowski rząd. Byśmógł to sprawdzić w internecie ale przecież putin Ci go blokuje. Zeleński mówi do Putina "Mówię to do ciebie jako prezydent kraju walczącego z rosyjskimi żołnierzami. To wojna, ale to nie są zwierzęta" 
+
+
+
+
 ## Intercepted conversation between the Russian commander and the soldier to kill civilians.
 Przechwycona rozmowa dowódcy rosjan z żołnierzem, by zabijać cywili. 
 
