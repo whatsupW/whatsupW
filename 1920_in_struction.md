@@ -33,7 +33,7 @@ You visit the following page https://1920.in and choose the method you’d like 
 
 Wchodzisz na stronę https://1920.in wybierasz sam metodę jaką chcesz użyć. Na początku strona sprawdzi czy jesteś na telefonie mobilnym, czy na komputerze.
 
-![1920](https://user-images.githubusercontent.com/101053692/163460405-cc099c1d-bb93-4432-8dd9-32e4ba87b76a.png)
+![1920](https://github.com/whatsupW/whatsupW/blob/main/img/3/1920_in_viber.png)
 
 ## SEND SMS
 
