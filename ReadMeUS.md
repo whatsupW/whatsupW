@@ -76,3 +76,10 @@ Speech by the President of Ukraine after the bombing of the Children's Hospital 
 https://user-images.githubusercontent.com/101053692/157630355-704bc5e1-6f38-44b8-a20f-028107f2fed5.mp4
 
 https://user-images.githubusercontent.com/101053692/157630467-338b169d-c370-47b8-9844-02d47eb8679b.mp4
+
+## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW/whatsupW>)
+
+https://github.com/whatsupW
