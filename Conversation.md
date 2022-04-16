@@ -222,14 +222,17 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true
 ![Moskwa2](https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png)   
 
     
-#### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. 
-    
-My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
+#### Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
     
 ```
     ...
     
 ```
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.mp4
+    
+
+
+https://user-images.githubusercontent.com/101053692/163678345-cea2bd0a-b89b-4a76-b3d8-7ddf0139c8f7.mp4
 
 
     
