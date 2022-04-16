@@ -6,8 +6,6 @@ Ruskie pozostwiają zwłoki swoich żołnierzy.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
 
-![Rosjanie_zostawiają_swoich_zolnierzy](https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4)
-
 ## Intercepted conversation between the Russian commander and the soldier to kill civilians.
 Przechwycona rozmowa dowódcy rosjan z żołnierzem, by zabijać cywili. 
 
@@ -15,7 +13,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Zabija%C4%87_cywili.
 
 https://user-images.githubusercontent.com/101053692/162839383-f9d5653b-67fc-467c-ba31-5850fbc16a5f.mp4
 
-##A Russian soldier boasts about stolen telephones.
+## A Russian soldier boasts about stolen telephones.
 Ruski żołnierz chwali się ukradzionymi telefonami.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_chwali_sie_telefonami.mp4?raw=true
@@ -46,6 +44,6 @@ https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Ciala_na_autostradzi
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence>)
+[<Readme.md>](<https://github.com/whatsupW/whatsupW/>)
 
-https://github.com/whatsupW#texts-to-russians-that-you-can-copy-and-send-eg-whatsup-wa1920in-as-a-response-to-their-propaganda-you-do-not-know-russian-use-the-translator-and-heres-the-evidence
+https://github.com/whatsupW
