@@ -118,6 +118,10 @@ https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg?raw=true
 
 Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. Zagrali dla Ukrainy i to bez swoich słów. Nie daje Ci to do myślenia? Nagle cały świat przeciwko Wam... Właśnie nie Wam a przeciwko waszemu rządowi. To my wiemy, że po 22 latach człowieka z KGB i jedo rząd trzeba usunąć. To nie my chcemy jego metodammi Was oswobodzić. To Putin jak sobie nie radzi, dąrzy po dwóch miesiącach do wojny. Wymusza tą sytuację. Dlatego my jako świat prosimy: ogrnij się i wreszcie mniej móc mieć swoje zdanie. Bądź za demokracją, czyli za rządami, na które masz wpływ a nie tylko putin i oligarchowie. 
     
+```
+Ты знаешь группу Пинк Флойд? Это они протестовали своей музыкой против социализма. Прошло 30 лет и они снова заиграли. Они заиграли для Украины, ещё и без своих слов. Это не наталкивает тебя ни на какую мысль? Вдруг весь мир против вас... Хотя нет, не против вас, а против вашего правительства. Это мы знаем, что после двадцати двух лет человека из КГБ (ка-ге-бе), его правление нужно свергнуть. Но мы не хотим вас освобождать его методами. Это только путин если с чем-то не справляется, начинает войну. Это из за его действий все санкции. Поэтому я от имени всего мира прошу, начните наконец-то думать, имейте наконец-то свое мнение. Будь за демократию,то есть за правительство, на которое имеют влияние не только путин и олигархи.
+```
+    
 https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf-9bd7-7634a1261915.mp4
 
 https://github.com/whatsupW/whatsupW/blob/main/Solidarni/Pink_Floyd.mp4?raw=true
@@ -146,7 +150,10 @@ Jak powie, że internet jest to zapytaj:
 ### On the TV they’re probably telling you that Ukrainians have killed civilians in Bucza. The reality is very different. Your soldiers received such a command. Satellite pictures even show that bodies were lying on the ground before the actual massacre.
     
 W telewizji pewnie słyszałeś, że to Ukraince zabili cywili w Buczy. A fakty są inne. To Wasi żołnierze mieli taki rozkaz. Zdjęcia satelitarne też pokazują, że ciała leżały już prędzej.
-    
+  
+```
+По телевизору ты точно слышал, что это украинцы убили гражданское население Бучи. Это не правда. Факты говорят о другом. Это сделали ваши солдаты по приказу путина. Спутниковые фотографии тоже показывают, что тела людей лежали ещё до того, как украинская армия вошла в этот город.
+```
 
 https://user-images.githubusercontent.com/101053692/163636238-49aa1cfe-3965-488d-99df-ef2c947cc5fc.mp4
 
@@ -234,7 +241,8 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/moskwa2.png?raw=true
 Masz przykład jak kłamią, zobacz co teraz nagle mówią jak się okazało, że okręt zatonął. My nie jesteśmy przeciwko wam. Musicie to zrozumieć. Putin już nie wie co robić. Cche wywołać trzecią wojnę światową i powie, że to naziści i USA. Przez to, że siedzisz bezczynnie i myślisz, że to świat oszalał a nie putin? Zaraz rozpocznie wojnę by nie pokazać słabości. Mało masz dowodów?
     
 ```
-    ...
+Вот у тебя пример их вранья. Смотри, что сказали, когда оказалось, что крейсер москва утонул. 
+Мы не против вас. Вы должны это понять. Мы против путина. Он уже не понимает, что делает. Он хочет начать третью мировую войну, а потом скажет, что это фашисты и Штаты. А все их за того, что ты сидишь и ничего не делаешь и думаешь,что мир сошёл с ума, а не путин. Он скоро начнёт войну с целым миром. Тебе ещё мало доказательств?
     
 ```
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Moskwa_po_zatoni%C4%99ciu.mp4
