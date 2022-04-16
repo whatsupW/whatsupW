@@ -105,18 +105,16 @@ Teraz byś sam sobie odpowiedział: a w czym ci ona przeszkadzała… Od 2014 pu
 ```
 Весь мир помогает Украине. Ты задумывался, почему иностранные фирмы закрываются и убегают из России?
 ```
+    
+![Miasta.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG)
 
-    ```
-    ![Miasta.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG)
-    
-    https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG?raw=true
-    
-    ![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
-    
-    https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg?raw=true
-    
-    ### Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. 
-    
+https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG?raw=true
+
+![Idole.jpg](https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg)
+
+https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg?raw=true
+
+### Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. 
 
 https://user-images.githubusercontent.com/101053692/163654251-8b140807-3acb-4baf-9bd7-7634a1261915.mp4
 
