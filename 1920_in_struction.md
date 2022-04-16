@@ -1,13 +1,13 @@
 # How to help Ukraine with [1920.in](https://1920.in)?
 Jak pomóc Ukrainie z [1920.in](https://1920.in)?
 
-Our page was created for people who want to help Ukraine but don’t know how. The best way to end this war in a liberal way is to explain to Russians that this isn’t a “special military mission” - it is Putin’s genocidal war. I personally can’t speak Russian, I use google translate, which is what I explained in the first answer.
+#### Our page was created for people who want to help Ukraine but don’t know how. The best way to end this war in a liberal way is to explain to Russians that this isn’t a “special military mission” - it is Putin’s genocidal war. I personally can’t speak Russian, I use google translate, which is what I explained in the first answer.
 
 Nasza strona powstała dla osób, które chcą pomóc Ukrainie a nie wiedzą jak.
 Najlepszym liberalnym sposobem by wojna się zakończyła jest wytłumaczenie Rosjanom, że to nie jest "specjalna misja wojskowa". 
 Tylko ludobójcza wojna hutina. Sam nie umię rosyjskiego, korzystam z translatora google, co tłumaczę w pierwszej odpowiedzi.
 
-The idea is to clarify to Russians, as they aren’t aware due to the propaganda that is spread in their media. There, they still depict Ukraine as a country of Nazis. They even say that the genocide in Bucza was a Ukrainian attack masked in order to look like the Russians were behind it. If you want to annoy Russians then DO NOT USE OUR HELP as you will just harm the cause.
+#### The idea is to clarify to Russians, as they aren’t aware due to the propaganda that is spread in their media. There, they still depict Ukraine as a country of Nazis. They even say that the genocide in Bucza was a Ukrainian attack masked in order to look like the Russians were behind it. If you want to annoy Russians then DO NOT USE OUR HELP as you will just harm the cause.
 
 Zamysłem jest wytłumaczyć Rosjanom, bo są nie świadomi przez propagandę w mediach. Tam cały czas przedstawiają Ukrainę jako nazistów. Nawet o ludobójstwie w Buczy opowiadali, że to napaść Ukraińców by oskarżyć rosjan. 
 Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zaszkodzisz.
@@ -15,7 +15,7 @@ Jeżeli zamierzasz ich denerwować to NIE KORZYSTAJ Z NASZEJ POMOCY bo tylko zas
 ### How to do it?
 Jak to zrobić?
 
-You don’t know any Russians? No problem!
+### You don’t know any Russians? No problem!
 The IT experts at ‘Anonymous’ have created a website for people to easily access such contacts.
 
 Nie znasz żadnego Rosjanina? To nie problem!
@@ -86,11 +86,11 @@ I’ve been speaking to a few people for some weeks now. There are some who unde
   Pierwszy kontakt
 Ja od paru tygodni rozmawiam z paroma osobami. Są osoby, które to rozumieją i czują się bezsilne bo mogą zostać ukarane. Im tłumaczę, że nie są sami i też staram się dotrzeć do następnych by im to uświadomić, że muszą sami obalić rząd. Inaczej nic się nie zmieni. 
 
-  Most do not answer, however on for example whatsup you can see once someone has read your message, which is why, when I see that, I send them more videos and texts. Remember that they can forward your messages and share them with other people – in the end this is what this is about, to reach as many people as possible.
+### Most do not answer, however on for example whatsup you can see once someone has read your message, which is why, when I see that, I send them more videos and texts. Remember that they can forward your messages and share them with other people – in the end this is what this is about, to reach as many people as possible.
   
 Większość nie odpisuje. Ale np. w whatsup widać, że odczytują. Dlatego też im śle następne filmy czy teksty. Pamiętaj, że oni mogą te wiadomości rozsyłać dalej. A przecież o to chodzi nam chodzi, żeby dotrzeć do jak największej liczby osób.
 
-But there are also people who answer. Some will ask:
+### But there are also people who answer. Some will ask:
 - Who are you?
 
 No i teraz są też osoby, które odpiszą. Są też osoby, które zapytają: 
@@ -98,7 +98,7 @@ No i teraz są też osoby, które odpiszą. Są też osoby, które zapytają:
 - Ktoś ty?
 - Кто ты?
 
-Other people exist who may say some offensive things to you and tell you to for example to go f*ck yourself... Don’t answer in the same way, even if you get mad. These are exactly the type of people who need to be reached – this is the root of the problem. These are the people who those, who understand what is going on, are scared of. You should react in a calm manner to every bad message you receive from one of them, better yet ask them a question.
+### Other people exist who may say some offensive things to you and tell you to for example to go f*ck yourself... Don’t answer in the same way, even if you get mad. These are exactly the type of people who need to be reached – this is the root of the problem. These are the people who those, who understand what is going on, are scared of. You should react in a calm manner to every bad message you receive from one of them, better yet ask them a question.
   
 No i są też osoby, od których możesz usłyszeć na samym początku obraźliwe słowa np. spierdalaj… Nie masz odpowiadać tak samo, nawet jak cię poniesie. To właśnie do tych musimy dotrzeć. To tu tkwi ten cały problem. To tych osób się boją ci co to rozumieją. Na każdą ich złą odpowiedź sam spokojnie musisz odpowiedzieć, a najlepiej zadając pytanie.
 
