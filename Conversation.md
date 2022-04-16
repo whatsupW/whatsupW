@@ -246,6 +246,11 @@ https://user-images.githubusercontent.com/101053692/163678345-cea2bd0a-b89b-4a76
 [The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md) 
     
 https://github.com/whatsupW/whatsupW/blob/main/The_next_arguments.md
+   
+#### Crimes of Russians
+Zbrodnie rosjan
+    
+https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/zbrodnie.md
     
 ## Back to main page
 Powrót do strony głównej
