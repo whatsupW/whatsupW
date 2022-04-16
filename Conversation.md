@@ -114,7 +114,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/2/miasta.PNG?raw=true
 
 https://github.com/whatsupW/whatsupW/blob/main/img/2/Idole.jpg?raw=true
 
-### Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. 
+### Do you know Pink Floyd? They are the band that musically showed that they are against socialism. Now, after 30 years, they are playing for Ukraine - their message is clear even without words. Does this not make you question things? The whole world is against you all of a sudden… actually not against you but against your government. All of us know that this KGB government and its leader have to be taken down. We don’t want to “free” you with the same methods he uses. Putin is the only one who, if he doesn’t get what he wants after two months, uses war as a way to try and get it. He is forcing this situation. This is why we, as the whole world, ask you to pull yourself together and have the courage to have your own opinion. Be FOR democracy and governments you have an influence on, not for Putin and his oligarchs. 
 
 Znasz Pink Floud? To oni muzycznie mieli sprzeciw przeciwko socjalizmowi. Teraz po 30 latach zagrali. Zagrali dla Ukrainy i to bez swoich słów. Nie daje Ci to do myślenia? Nagle cały świat przeciwko Wam... Właśnie nie Wam a przeciwko waszemu rządowi. To my wiemy, że po 22 latach człowieka z KGB i jedo rząd trzeba usunąć. To nie my chcemy jego metodammi Was oswobodzić. To Putin jak sobie nie radzi, dąrzy po dwóch miesiącach do wojny. Wymusza tą sytuację. Dlatego my jako świat prosimy: ogrnij się i wreszcie mniej móc mieć swoje zdanie. Bądź za demokracją, czyli za rządami, na które masz wpływ a nie tylko putin i oligarchowie. 
     
@@ -142,7 +142,9 @@ Jak powie, że internet jest to zapytaj:
 Ты знаешь, что действительно делает российская армия в Украине? У тебя есть понимание того, что путин вам все блокирует и ты смотришь только телевизор, только то, что вам хотят показывать? Ты знаешь, что российская армия украденные в Украине вещи (золото, мобильные телефоны, телевизоры) высылает через белорусскую почту своим семьям? 
 ```
     
-# W telewizji pewnie słyszałeś, że to Ukraince zabili cywili w Buczy. A fakty są inne. To Wasi żołnierze mieli taki rozkaz. Zdjęcia satelitarne też pokazują, że ciała leżały już prędzej.
+# On the TV they’re probably telling you that Ukrainians have killed civilians in Bucza. The reality is very different. Your soldiers received such a command. Satellite pictures even show that bodies were lying on the ground before the actual massacre.
+    
+W telewizji pewnie słyszałeś, że to Ukraince zabili cywili w Buczy. A fakty są inne. To Wasi żołnierze mieli taki rozkaz. Zdjęcia satelitarne też pokazują, że ciała leżały już prędzej.
     
 
 https://user-images.githubusercontent.com/101053692/163636238-49aa1cfe-3965-488d-99df-ef2c947cc5fc.mp4
@@ -167,7 +169,8 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
     
     
 ### Maybe you have everything that your government has promised you (so the basics). You also have basic information from the internet... actually no, you don’t because Putin is taking away your basic right for freedom of speech. You can’t have access to global internet. You can’t protest. There is a lack of democracy and you wanna tell me about what your Putin is doing? Maybe go outside tomorrow and protest against Ukraine. Maybe, because he’s losing, he’ll let you?
--  Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak jak masz podstawowe informacje w internecie. A nie…  Ty nie masz. To przecież twój putin odbiera Ci podstawowe prawo do wolności słowa. Nie możesz mieć internetu globalnego. Nie możesz protestować! Brak demokracji i ty mi chcesz coś tłumaczyć Co twój putin robi? Może wyjdź jutro i protestuj przeciw ukrainie. To może, że przegrywa to pozwoli?
+
+Może masz wszystko to co rząd chce ci zapewnić. Czyli podstawowe rzeczy. Tak jak masz podstawowe informacje w internecie. A nie…  Ty nie masz. To przecież twój putin odbiera Ci podstawowe prawo do wolności słowa. Nie możesz mieć internetu globalnego. Nie możesz protestować! Brak demokracji i ty mi chcesz coś tłumaczyć Co twój putin robi? Może wyjdź jutro i protestuj przeciw ukrainie. To może, że przegrywa to pozwoli?
 
 ```
 Может у тебя есть все, чем правительство хочет тебя обеспечить. То есть основные вещи. Так как основная информация в интернете. A нет. У тебя нет всего. Ведь твой путин отбирает у тебя элементарное право на свободу слова. У тебя нет глобального интернета. У тебя нет возможности протестовать. У вас нет демократии и ты мне хочешь объяснить, что делает твой путин? Может завтра выйди на улицу и протестуй против своего правительства? Может путин разрешит, раз проигрывает войну?
@@ -187,7 +190,9 @@ https://github.com/whatsupW/whatsupW/blob/main/img/Bucha_opowiada.mp4?raw=true
 ```
 Дальше хочешь так жить? Чего ты не понимаешь? Может вместо телевизора, начнешь включать мозги? 
 ```
-#### Po uderzeniu pocisków na okręt Moskwa, w telewizji mówili, że to tylko pożar. A jak zatonął to, że to atak na rosję. Czy od dwóch miesięcy nie mordujecie Ukrainy? Czy tylko przez przypadek zatonięcia i bład propagandy w telewizji możesz zobaczyć prawdę
+####  
+    
+Po uderzeniu pocisków na okręt Moskwa, w telewizji mówili, że to tylko pożar. A jak zatonął to, że to atak na rosję. Czy od dwóch miesięcy nie mordujecie Ukrainy? Czy tylko przez przypadek zatonięcia i bład propagandy w telewizji możesz zobaczyć prawdę
     
 ```
 Tekst
