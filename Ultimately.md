@@ -37,4 +37,10 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Nie%C5%BCywi.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/163694383-e4d88a81-05d6-4329-af2a-c6d178c4d57d.mp4
 
+## Cywile zatrzymali czołg
+
+https://github.com/whatsupW/whatsupW/blob/main/img/zatrzymaliCzolg.mp4
+
+## A tacy odważni jesteście wy, rosjanie.
+
 
