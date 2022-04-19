@@ -48,7 +48,9 @@ Za to ludobójstwo wzioł już się Trybunał Nurnbergski. To oni prowadzili spr
 
 Po wybuchu okrętu Moskwa rząd nie podał ile żołnierzy zginęło. Matki nie mogą znaleźć swoich synów. Nawet z tym Was oszukują. Czemu tego nie widzicie? Rosyjskie matki i ojcowie nie mogą znaleźć swoich synów. Pamiętasz Kursk?
 
-[The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/img/4/Zolnierz_moskwa.jpg)
+[Zdjęcie - link](https://github.com/whatsupW/whatsupW/blob/main/img/4/Zolnierz_moskwa.jpg)
+
+![Zolnierz_moskwa](https://user-images.githubusercontent.com/101053692/164053341-6b987ea1-bd87-41e7-bc76-4f81948a8494.jpg)
 
 
 Mamy 21 wiek. świat chce żyć w pokoju i demokracji. Czy nie możesz zrozumieć, że to nie świat zwariował i uparł się na rosjan. Tylko twój rząd prowadzi propagandę w waszych umysłach. 
