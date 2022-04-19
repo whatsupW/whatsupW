@@ -19,6 +19,7 @@ Mówicie, że nie ma wojny i że to ukraina napada. Zobacz ile wojen prowadzili�
 2022 Znowu Ukraina.
 Ponadto w XX wieku Rumunia, Hiszpania, Korea, Wietnam, Etiopia, Angola, Zair, Kuba, Mozambik, Wojna Sześciodniowa, Libia, Iran, Irak podczas wojny irańsko-irackiej i wiele innych. Teraz niby ratujecie ich przed nazistami, ale to wy jesteście okupantem i mordujecie cywyli.
 
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true
 
 
 
