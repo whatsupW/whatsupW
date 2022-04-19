@@ -4,7 +4,7 @@ Przeważnie rozmowę zaczynają od tego, że Ukraińcy to naziści. Tu masz odpo
 
 Mówicie, że to Ukraina sama zaczęła wojnę, a wy tylko pomagacie cywilom? Zobacz, ile razy wy zaczynaliście wojny:
 1905 Japonia,
-1914 Atak na Niemcy, wejście do I Świata,
+1914 Atak na Niemcy, Rosja przystępuje do I Wojny Światowej,
 1918 22 Okupacja Ukrainy, Białorusi, Gruzji, republik kaukaskich, Mandżurii, państw Azji Środkowej.,
 1939 Okupacja krajów bałtyckich, atak na Finlandię i Polskę,
 1945 Atak na Japonię, okupacja Węgier, Czechosłowacji, Jugosławii, NRD,
@@ -12,7 +12,7 @@ Mówicie, że to Ukraina sama zaczęła wojnę, a wy tylko pomagacie cywilom? Zo
 1992 93, - Gruzja, Karabach, Mołdawia,
 1994 Iczkeria, pierwszy Czeczeń,
 1999 Drugi Czeczeń,
-2004 08 - ponownie Gruzja,
+2004-08 ponownie Gruzja,
 2014 Ukraina,
 2016 Syria,
 2022 Znowu Ukraina.
