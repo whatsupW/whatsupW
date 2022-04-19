@@ -1,5 +1,5 @@
 # Letter
-List
+List 19-04-2022
  
 Przeważnie rozmowę zaczynają od tego, że Ukraińcy to naziści. Tu masz odpowiedź. 
 
@@ -23,7 +23,8 @@ Rumunia, Hiszpania, Korea, Wietnam, Etiopia, Angola, Zair, Kuba, Mozambik, Wojna
 
 
 
-57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz humanitarny, by móc ewakułować tych ludzi. Putinowskie wojska strzelają do wszystkich, nawet cywili. Tak przez Was żyją. Chciał byś tam siedzieć? Idą święta.
+57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz humanitarny, by móc ewakułować tych ludzi. Putinowskie wojska strzelają do wszystkich, nawet cywili. Tak przez Was żyją. Chciał byś tam siedzieć? Ponad 1000 cywili z dziećmi siedzi w piwnicach w fabryce Avovstal. Wielu z nich nie widziało światła przez połtoraj miesiąca. W związku z blokadą wojsk rosyjskich mają skąpe jedzenie. Nie którym dzieciom zaczeły wypadać zęby.
+
 
 
 Oszukuja was mówią że tylko obiekty militarne to słuchaj tego.
