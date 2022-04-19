@@ -29,6 +29,30 @@ https://github.com/whatsupW/whatsupW/blob/main/img/4/Avovstal.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164052583-f2eb79a3-b87b-469e-aefd-fcca3d5caa3e.mp4
 
+
+
+
+
+https://user-images.githubusercontent.com/101053692/164061835-e54226c6-fa7f-4647-a46a-d3b4590d22b8.mp4
+
+
+https://github.com/whatsupW/whatsupW/blob/main/img/4/3tony.mp4?raw=true
+
+
+
+
+https://github.com/whatsupW/whatsupW/blob/main/img/4/List.JPG
+
+![List](https://user-images.githubusercontent.com/101053692/164062583-c9a2c045-3af3-444c-ab67-b654400e0525.JPG)
+
+
+
+
+https://github.com/whatsupW/whatsupW/blob/main/img/4/List2.jpeg?raw=true
+
+![List2](https://user-images.githubusercontent.com/101053692/164061747-3f765279-62a4-4902-bab2-c6ecc88a1b73.jpeg)
+
+
 Oszukują was mówią że tylko obiekty militarne to słuchaj tego.
 
 
