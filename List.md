@@ -24,7 +24,7 @@ Ponadto w XX wieku Rumunia, Hiszpania, Korea, Wietnam, Etiopia, Angola, Zair, Ku
 
 57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz humanitarny, by móc ewakułować tych ludzi. Putinowskie wojska strzelają do wszystkich, nawet cywili. Tak przez Was żyją. Chciał byś tam siedzieć? Ponad 1000 cywili z dziećmi siedzi w piwnicach w fabryce Avovstal. Wielu z nich nie widziało światła przez połtoraj miesiąca. W związku z blokadą wojsk rosyjskich mają skąpe jedzenie. Nie którym dzieciom zaczeły wypadać zęby.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/4/Avovstal.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/4/Avovstal.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164052583-f2eb79a3-b87b-469e-aefd-fcca3d5caa3e.mp4
 
@@ -48,7 +48,7 @@ Za to ludobójstwo wzioł już się Trybunał Nurnbergski. To oni prowadzili spr
 
 Po wybuchu okrętu Moskwa rząd nie podał ile żołnierzy zginęło. Matki nie mogą znaleźć swoich synów. Nawet z tym Was oszukują. Czemu tego nie widzicie? Rosyjskie matki i ojcowie nie mogą znaleźć swoich synów. Pamiętasz Kursk?
 
-https://github.com/whatsupW/whatsupW/blob/main/img/4/Zolnierz_moskwa.jpg
+[The next arguments - link](https://github.com/whatsupW/whatsupW/blob/main/img/4/Zolnierz_moskwa.jpg)
 
 
 Mamy 21 wiek. świat chce żyć w pokoju i demokracji. Czy nie możesz zrozumieć, że to nie świat zwariował i uparł się na rosjan. Tylko twój rząd prowadzi propagandę w waszych umysłach. 
