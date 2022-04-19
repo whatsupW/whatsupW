@@ -1,7 +1,7 @@
 # Letter
 List
-
-Pisząc z Rosjanami mam wrażenie, że mało pomagam.
+ 
+Przeważnie rozmowę zaczynają od tego, że Ukraińcy to naziści. Tu masz odpowiedź. 
 
 Mówicie, że nie ma wojny i że to ukraina napada. Zobacz ile wojen prowadziliście.
 1905 - Japonia
@@ -18,7 +18,22 @@ Mówicie, że nie ma wojny i że to ukraina napada. Zobacz ile wojen prowadzili�
 2016 - Syria
 2022 - Znowu Ukraina
 Ponadto w XX wieku:
-Rumunia, Hiszpania, Korea, Wietnam, Etiopia, Angola, Zair, Kuba, Mozambik, Wojna Sześciodniowa, Libia, Iran, Irak podczas wojny irańsko-irackiej i wiele innych
+Rumunia, Hiszpania, Korea, Wietnam, Etiopia, Angola, Zair, Kuba, Mozambik, Wojna Sześciodniowa, Libia, Iran, Irak podczas wojny irańsko-irackiej i wiele innych. Teraz niby ratujecie ich przed nazistami, ale to wy jesteście okupantem i mordujecie cywyli.
 
-Mamy 21 wiek. świat chce żyć w pokoju i demokracji.
-Czy nie możesz zrozumieć, że to nie świat zwariował i uparł się na rosjan. Tylko twój rząd prowadzi propagandę w waszych umysłach. 57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz Humanitarny. Na co nie zgadza się twój putin. Strzelają co cywili. Zróbcie coś z tym. Zacznijcie protestować. Nie wychodźcie pojedyńczo. Nie róbcie tego sami. Wychodźcie codziennie o 18 i patrz jak ludzi będzie przybywać. Jak będzie was tysiące dopiero zacznijcie krzyczeć.
+
+
+
+57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz humanitarny, by móc ewakułować tych ludzi. Putinowskie wojska strzelają do wszystkich, nawet cywili. Tak przez Was żyją. Chciał byś tam siedzieć? Idą święta.
+
+
+Oszukuja was mówią że tylko obiekty militarne to słuchaj tego.
+
+
+Za ludobójstwo wzioł już się Trybunał Nurnbergski. To oni prowadzili sprawy po drugiej wojnie światowej. Teraz zbierają dowody w grupie na telegramie. Dołącz. Zobacz rzeczywistość. 
+
+
+
+Po wybuchu okrętu Moskwa rząd nie podał ile żołnierzy zginęło. Matki nie mogą znaleźć swoich synów. Nawet z tym Was oszukują. Czemu tego nie widzicie?
+
+Mamy 21 wiek. świat chce żyć w pokoju i demokracji. Czy nie możesz zrozumieć, że to nie świat zwariował i uparł się na rosjan. Tylko twój rząd prowadzi propagandę w waszych umysłach. 
+Zróbcie coś z tym. Zacznijcie protestować. Nie wychodźcie pojedyńczo. Nie róbcie tego sami. Wychodźcie codziennie o 18 i patrz jak ludzi będzie przybywać. Jak będzie was tysiące dopiero zacznijcie krzyczeć.
