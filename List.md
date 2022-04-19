@@ -44,8 +44,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164054658-3f13d600-bad2-4678-9445-e3d13e4c1e2a.mp4
 
-57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz humanitarny, by móc ewakuować tych ludzi. Putinowskie wojska strzelają do wszystkich, nawet cywili. Tak przez Was żyją. Chciał byś tam siedzieć? Ponad 1000 cywili z dziećmi siedzi w piwnicach w fabryce Avovstal. Wielu z nich nie widziało światła przez półtorej miesiąca. W związku z blokadą wojsk rosyjskich mają skąpe jedzenie. Nie którym dzieciom zaczęły wypadać zęby.
+Teraz gdy wojsko rosyjskie wkroczyło na terytorium Ukrainy, wasz przywódca mówi, że rosjanie ratują ukraińskich cywili, ale to jest nie prawda. Jesteście okupantem, który zachowuje się gorzej niż nazista. Bo nawet naziści nie robili tego, co robi wasze wojsko. To wy w każdej wojnie jesteście bezwzględnym okupantem, który przychodzi tylko niszczyć i zabijać. Co zostało po tym, jak rosyjskie wojsko chciało kogoś uratować? Ruiny i trupy.
 
+```
+Сейчас, когда российская армия вошла на территорию Украины, ваш лидер говорит, что россияне спасают гражданских, но это не так, Вы оккупант, который ведет себя хуже нацистов, ибо даже нацисты не делали того, что делает ваша армия. Это вы в каждой войне жестокий оккупант, который приходит только уничтожать и убивать. Что осталось после того, как российские войска хотели кого-то спасать? Руины и трупы.
+```
 
 
 
