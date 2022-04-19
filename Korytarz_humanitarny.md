@@ -78,16 +78,12 @@ Oszukują was mówiąc, że tylko obiekty militarne ostrzeliwują, to nie prawda
 Правительство обманывает вас, когда говорит, что стреляют только по военным объектам. Не верьте, это неправда.  
 ```
 
-Doprowadziliście do prawdziwego ludobójstwa i eksterminacji zupełnie niewinnych ludzi na Ukrainie. Zaraz są zbierane dowody przestępstw wojennych dokonanych przez rosyjskie wojsko. Wszystkie te dowody będą dowodami w procesie Norymberskim XXI wieku. Był to proces sądowy zbrodniarzy wojennych po II Wojnie Światowej. Teraz wasze wojsko będzie sądzone na dokładnie takim samym procesie. 
+Doprowadziliście do prawdziwego ludobójstwa i eksterminacji zupełnie niewinnych ludzi na Ukrainie. Zaraz są zbierane dowody przestępstw wojennych dokonanych przez rosyjskie wojsko. Wszystkie te dowody będą dowodami w procesie Norymberskim XXI wieku. Był to proces sądowy zbrodniarzy wojennych po II Wojnie Światowej. Teraz wasze wojsko będzie sądzone na dokładnie takim samym procesie. Zobacz rzeczywistość. Dołącz do grupy w telegramie, gdzie możesz zobaczyć wszystkie bestialstwa rosyjskich wojskowych.
 
 ```
-Zobacz rzeczywistość. Dołącz do grupy w telegramie, gdzie możesz zobaczyć wszystkie bestialstwa rosyjskich wojskowych.
 Вы организовали настоящий геноцид не в чем неповинных людей в Украине. Сейчас собираются доводы преступлений военных совершенных российскими войсками. Все эти доказательства будут доводами в Нюрнбергском Процессе ХХI века. Нюрнбергский Процесс -это процесс военных преступников после Второй Мировой Войны. Теперь вашу армию будут судить также.
 Открой глаза. Попробуй увидеть реальность. Присоединись к группе в телеграмм канале, чтобы собственными глазами увидеть жестокость российских военных.
-Факты преступлений армии РФ против мирного населения Украины. 
-```
 
-```
 Факты преступлений армии РФ против мирного населения Украины. 
 
 Помогите наказать Путина!
