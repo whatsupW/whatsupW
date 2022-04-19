@@ -31,17 +31,13 @@ https://user-images.githubusercontent.com/101053692/164052583-f2eb79a3-b87b-469e
 
 
 
-
+https://github.com/whatsupW/whatsupW/blob/main/img/4/3tony.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164061835-e54226c6-fa7f-4647-a46a-d3b4590d22b8.mp4
 
 
-https://github.com/whatsupW/whatsupW/blob/main/img/4/3tony.mp4?raw=true
 
-
-
-
-https://github.com/whatsupW/whatsupW/blob/main/img/4/List.JPG
+https://github.com/whatsupW/whatsupW/blob/main/img/4/List.JPG?raw=true
 
 ![List](https://user-images.githubusercontent.com/101053692/164062583-c9a2c045-3af3-444c-ab67-b654400e0525.JPG)
 
