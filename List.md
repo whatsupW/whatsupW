@@ -21,7 +21,7 @@ Ponadto w XX wieku Rumunia, Hiszpania, Korea, Wietnam, Etiopia, Angola, Zair, Ku
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true
 
-
+https://user-images.githubusercontent.com/101053692/164054658-3f13d600-bad2-4678-9445-e3d13e4c1e2a.mp4
 
 57 dzień Mariulop jest okupowany przez wasze wojsko. Ludzie proszą o korytarz humanitarny, by móc ewakułować tych ludzi. Putinowskie wojska strzelają do wszystkich, nawet cywili. Tak przez Was żyją. Chciał byś tam siedzieć? Ponad 1000 cywili z dziećmi siedzi w piwnicach w fabryce Avovstal. Wielu z nich nie widziało światła przez połtoraj miesiąca. W związku z blokadą wojsk rosyjskich mają skąpe jedzenie. Nie którym dzieciom zaczeły wypadać zęby.
 
