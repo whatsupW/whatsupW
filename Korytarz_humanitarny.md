@@ -49,22 +49,18 @@ Teraz gdy wojsko rosyjskie wkroczyło na terytorium Ukrainy, wasz przywódca mó
 Сейчас, когда российская армия вошла на территорию Украины, ваш лидер говорит, что россияне спасают гражданских, но это не так, Вы оккупант, который ведет себя хуже нацистов, ибо даже нацисты не делали того, что делает ваша армия. Это вы в каждой войне жестокий оккупант, который приходит только уничтожать и убивать. Что осталось после того, как российские войска хотели кого-то спасать? Руины и трупы.
 ```
 
-
-
 https://github.com/whatsupW/whatsupW/blob/main/img/4/Avovstal.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164052583-f2eb79a3-b87b-469e-aefd-fcca3d5caa3e.mp4
-
-
 
 https://github.com/whatsupW/whatsupW/blob/main/img/4/3tony.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164061835-e54226c6-fa7f-4647-a46a-d3b4590d22b8.mp4
 
-57 dzień Mariupol jest okupowany przez wasze wojsko. Ukraińcy proszą o korytarz humanitarny, by móc ewakuować dzieci, kobiety i starców. Jeśli ktoś się pojawia na ulicy, wasi wojskowi wszystkich rozstrzeliwują, nawet cywili. Chcesz wiedzieć, jak wygląda życie mieszkańców Mariupola teraz?  Ponad 1000 cywili z dziećmi siedzi w piwnicach w fabryce Azovstal. Wielu z nich nie widziało światła przez półtorej miesiąca. W związku z blokadą wojsk rosyjskich mają skąpe jedzenie. Nie którym dzieciom zaczęły wypadać zęby. Chciałbyś mieć takie życie? 
+55 dzień Mariupol jest okupowany przez wasze wojsko. Ukraińcy proszą o korytarz humanitarny, by móc ewakuować dzieci, kobiety i starców. Jeśli ktoś się pojawia na ulicy, wasi wojskowi wszystkich rozstrzeliwują, nawet cywili. Chcesz wiedzieć, jak wygląda życie mieszkańców Mariupola teraz?  Ponad 1000 cywili z dziećmi siedzi w piwnicach w fabryce Azovstal. Wielu z nich nie widziało światła przez półtorej miesiąca. W związku z blokadą wojsk rosyjskich mają skąpe jedzenie. Nie którym dzieciom zaczęły wypadać zęby. Chciałbyś mieć takie życie? 
 
 ```
-57 день Мариуполь находиться в полной блокаде из за вашей армии. Украинцы просят организовать зеленый коридор, чтобы эвакуировать детей, женщин и стариков. Если кто-то появляется на улице, ваши войска всех расстреливают, даже гражданских. Хочешь знать, как выглядит теперь жизнь жителей Мариуполя? Больше тысячи граждан с маленькими детьми сидит в подвалах завода Азовсталь. Многие из них не видели света полтора месяца, в связи из блокадой у них нет почти еды. У некоторых детей уже стали выпадать зубы. Ты хотел бы иметь такую жизнь?
+55 день Мариуполь находиться в полной блокаде из за вашей армии. Украинцы просят организовать зеленый коридор, чтобы эвакуировать детей, женщин и стариков. Если кто-то появляется на улице, ваши войска всех расстреливают, даже гражданских. Хочешь знать, как выглядит теперь жизнь жителей Мариуполя? Больше тысячи граждан с маленькими детьми сидит в подвалах завода Азовсталь. Многие из них не видели света полтора месяца, в связи из блокадой у них нет почти еды. У некоторых детей уже стали выпадать зубы. Ты хотел бы иметь такую жизнь?
 ```
 
 https://github.com/whatsupW/whatsupW/blob/main/img/4/List.JPG?raw=true
