@@ -1,4 +1,4 @@
-# Korytarz_humanitarny 19-04-2022
+# Korytarz humanitarny 19-04-2022
  
 Przeważnie rozmowę zaczynają od tego, że Ukraińcy to naziści. Tu masz odpowiedź. 
 
