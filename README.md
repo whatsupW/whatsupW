@@ -1,6 +1,8 @@
 # Korytarz Humanitarny 20.04.2022
 
-![Korytarz Humanitarny - link](https://github.com/whatsupW/whatsupW/blob/main/Korytarz_humanitarny.md)
+[<Humanitarian_corridor, English version - link>](https://github.com/whatsupW/whatsupW/blob/main/Humanitarian_corridor.md) - Not yet translated
+
+[<Korytarz Humanitarny, wersja polska - link>](https://github.com/whatsupW/whatsupW/blob/main/Korytarz_humanitarny.md)
 
 #  How to help Ukraine with [1920.in](https://1920.in)?
 Jak pomóc Ukrainie z [1920.in](https://1920.in).
