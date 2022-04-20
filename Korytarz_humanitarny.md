@@ -97,8 +97,8 @@ Po wybuchu okrętu Moskwa rząd nie podał ile żołnierzy zginęło. Matki nie 
 ```
 После взрыва на крейсере Москва, ваше правительство даже не проинформировало вас, сколько солдат погибло. Матери не могут найти своих сыновей. Даже здесь они вам врут. Почему вы этого не видите? Российские матери и отцы не могут найти своих детей.  Ты помнишь Курск?
 ```
+https://github.com/whatsupW/whatsupW/blob/main/img/4/Zolnierz_moskwa2.jpg?raw=true
 
-[Zdjęcie - link](https://github.com/whatsupW/whatsupW/blob/main/img/4/Zolnierz_moskwa2.jpg)
 
 ![Zolnierz_moskwa2](https://user-images.githubusercontent.com/101053692/164054361-2bf4a165-b5fa-488a-a6c7-dd2d0709df8e.jpg)
 
