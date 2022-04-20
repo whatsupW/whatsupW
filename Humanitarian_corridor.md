@@ -1,6 +1,5 @@
-# Humanitarian corridor
-
-# Korytarz humanitarny 19-04-2022
+# Humanitarian corridor 20-04-2022
+Not yet translated
  
 Przeważnie rozmowę zaczynają od tego, że Ukraińcy to naziści. Tu masz odpowiedź. 
 
