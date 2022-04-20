@@ -65,7 +65,9 @@ https://user-images.githubusercontent.com/101053692/164061835-e54226c6-fa7f-4647
 
 https://github.com/whatsupW/whatsupW/blob/main/img/4/Polkownik.mp4?raw=true
 
-![List](https://github.com/whatsupW/whatsupW/blob/main/img/4/Polkownik.mp4)
+[<Pułkownik - list - link>](https://github.com/whatsupW/whatsupW/blob/main/img/4/Polkownik.mp4)
+
+
 
 https://github.com/whatsupW/whatsupW/blob/main/img/4/List.JPG?raw=true
 
