@@ -63,6 +63,10 @@ https://user-images.githubusercontent.com/101053692/164061835-e54226c6-fa7f-4647
 55 день Мариуполь находиться в полной блокаде из за вашей армии. Украинцы просят организовать зеленый коридор, чтобы эвакуировать детей, женщин и стариков. Если кто-то появляется на улице, ваши войска всех расстреливают, даже гражданских. Хочешь знать, как выглядит теперь жизнь жителей Мариуполя? Больше тысячи граждан с маленькими детьми сидит в подвалах завода Азовсталь. Многие из них не видели света полтора месяца, в связи из блокадой у них нет почти еды. У некоторых детей уже стали выпадать зубы. Ты хотел бы иметь такую жизнь?
 ```
 
+https://github.com/whatsupW/whatsupW/blob/main/img/4/Polkownik.mp4?raw=true
+
+![List](https://github.com/whatsupW/whatsupW/blob/main/img/4/Polkownik.mp4)
+
 https://github.com/whatsupW/whatsupW/blob/main/img/4/List.JPG?raw=true
 
 ![List](https://user-images.githubusercontent.com/101053692/164062583-c9a2c045-3af3-444c-ab67-b654400e0525.JPG)
@@ -72,16 +76,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/4/List2.jpeg?raw=true
 
 ![List2](https://user-images.githubusercontent.com/101053692/164061747-3f765279-62a4-4902-bab2-c6ecc88a1b73.jpeg)
 
-Oszukują was mówiąc, że tylko obiekty militarne ostrzeliwują, to nie prawda.
+
+Oszukują was mówiąc, że tylko obiekty militarne ostrzeliwują, to nie prawda. Doprowadziliście do prawdziwego ludobójstwa i eksterminacji zupełnie niewinnych ludzi na Ukrainie. Zaraz są zbierane dowody przestępstw wojennych dokonanych przez rosyjskie wojsko. Wszystkie te dowody będą dowodami w procesie Norymberskim XXI wieku. Był to proces sądowy zbrodniarzy wojennych po II Wojnie Światowej. Teraz wasze wojsko będzie sądzone na dokładnie takim samym procesie. Zobacz rzeczywistość. Dołącz do grupy w telegramie, gdzie możesz zobaczyć wszystkie bestialstwa rosyjskich wojskowych.
 
 ```
-Правительство обманывает вас, когда говорит, что стреляют только по военным объектам. Не верьте, это неправда.  
-```
-
-Doprowadziliście do prawdziwego ludobójstwa i eksterminacji zupełnie niewinnych ludzi na Ukrainie. Zaraz są zbierane dowody przestępstw wojennych dokonanych przez rosyjskie wojsko. Wszystkie te dowody będą dowodami w procesie Norymberskim XXI wieku. Był to proces sądowy zbrodniarzy wojennych po II Wojnie Światowej. Teraz wasze wojsko będzie sądzone na dokładnie takim samym procesie. Zobacz rzeczywistość. Dołącz do grupy w telegramie, gdzie możesz zobaczyć wszystkie bestialstwa rosyjskich wojskowych.
-
-```
-Вы организовали настоящий геноцид не в чем неповинных людей в Украине. Сейчас собираются доводы преступлений военных совершенных российскими войсками. Все эти доказательства будут доводами в Нюрнбергском Процессе ХХI века. Нюрнбергский Процесс -это процесс военных преступников после Второй Мировой Войны. Теперь вашу армию будут судить также.
+Правительство обманывает вас, когда говорит, что стреляют только по военным объектам. Не верьте, это неправда. Вы организовали настоящий геноцид не в чем неповинных людей в Украине. Сейчас собираются доводы преступлений военных совершенных российскими войсками. Все эти доказательства будут доводами в Нюрнбергском Процессе ХХI века. Нюрнбергский Процесс -это процесс военных преступников после Второй Мировой Войны. Теперь вашу армию будут судить также.
 Открой глаза. Попробуй увидеть реальность. Присоединись к группе в телеграмм канале, чтобы собственными глазами увидеть жестокость российских военных.
 
 Факты преступлений армии РФ против мирного населения Украины. 
@@ -107,3 +106,10 @@ Zróbcie coś z tym. Zacznijcie protestować. Nie wychodźcie pojedynczo. Wychod
 ```
 XXI век на дворе. Все страны хотят мира и демократию. Почему ты не хочешь понять, что нет, это не мир сошел с ума и решил испортить россиянам жизнь. Вам все так объясняет ваше правительство, оно ведет пропаганду в ваших головах. Сделайте что-то с этим. Начните протестовать. Но не выходите по одному человеку. Выходите все в 18 часов каждый день и увидишь, как будет становиться все больше людей. Когда вас будут тысячи, тогда кричите о смене власти. 
 ```
+
+## Back to main page
+Powrót do strony głównej
+
+[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md>)
+
+https://github.com/whatsupW
