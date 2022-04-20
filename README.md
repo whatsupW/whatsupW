@@ -1,7 +1,7 @@
 # Humanitarian_corridor 20.04.2022
 Korytarz Humanitarny 20.04.2022
 
-[Humanitarian_corridor, English version - link](https://github.com/whatsupW/whatsupW/blob/main/Humanitarian_corridor.md) - Not yet translated
+[Humanitarian_corridor, English version - link](https://github.com/whatsupW/whatsupW/blob/main/Humanitarian_corridor.md) 
 
 [Korytarz Humanitarny, wersja polska - link](https://github.com/whatsupW/whatsupW/blob/main/Korytarz_humanitarny.md)
 
