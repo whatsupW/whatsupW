@@ -73,7 +73,7 @@ Myślisz, dlaczego nagle wszystkie kraje europejskie się zjednoczyły przeciwko
 
 https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg?raw=true
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg
+![dziecko-piwnica](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg)
 
 Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystkich postrzegał jak morderców. Mówicie, żebyśmy przestali do was pisać, bo jesteście z prowincji i nie macie wpływu na to co się dzieje? To nieprawda. Mają protestować tylko duże miasta? Każdy głos się liczy. Zrób coś z tym!!!  Prześlij prawdę dalej!!! Wychodźcie na ulice! Wychodźcie wszyscy codziennie o 18 i zobaczysz, jak ludzi będzie przybywać. Jak będą was tysiące, dopiero zacznijcie krzyczeć o zmianie władzy. Nie bójcie się! Jak zmienicie swój rząd, nie poniesiecie kary za protesty. Zostaną osądzeni ci, którzy teraz rządzą.  
 
