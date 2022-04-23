@@ -1,6 +1,21 @@
 ## Wielkanoc 24.04.2022
 
 Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu na czas świąt. Teraz widać, jakie jest wasze podejście do świąt i do Boga. Żadna wiara nie pozwala na zabijanie niewinnych ludzi, tym bardziej w Święto Zmartwychwstania Jezusa Chrystusa! Ukraińcy przez was muszą spędzać święta w piwnicach i schronach i bez świątecznych potraw!
+
+![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
+
+![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
+![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
+![prezent2](https://user-images.githubusercontent.com/101053692/164890257-d40441ce-4a2e-4d26-a7ba-ba08398f6ea3.jpg)
+![prezent3](https://user-images.githubusercontent.com/101053692/164890258-8a5ff0f5-1c4d-49bb-beb2-6df8ce75d41b.jpg)
+![prezent4](https://user-images.githubusercontent.com/101053692/164890259-0a92265d-e7a4-4155-8e23-ba84ecdf1a7d.jpg)
+![prezent5](https://user-images.githubusercontent.com/101053692/164890260-8d0b2aed-f151-4661-ac80-092a172408ad.jpg)
+![prezent6](https://user-images.githubusercontent.com/101053692/164890261-8cd32405-eb1b-4652-92ed-2960362b25bc.jpg)
+![prezent7](https://user-images.githubusercontent.com/101053692/164890262-0bebd1ab-bee6-490a-943c-b53e01da01bb.jpg)
+
+
+https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4
+
 Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukrainie nie ma faszystów. Jedynymi faszystami są rosyjscy żołnierze. I nawet żołnierzami ich nie można nazwać, bo to są mordercy i gwałciciele. Prawdziwy żołnierz nigdy by nie skrzywdził kobiety, dzieci czy starców. Gdyby Ukraina potrzebowała pomocy, to by o nią poprosiła. A ona jej nie chciała i nie chce! Dlatego teraz musi się bronić przed tą waszą „pomocą i wyzwoleniem”.
 Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy od Rosji i który ma mniejsze wojsko podniósł się, aby walczyć przeciwko najeźdźcy, przeciwko mordercom cywilów.
 
@@ -9,11 +24,16 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
 
+
+https://user-images.githubusercontent.com/101053692/164890235-d88f0cd6-106d-4297-b5f2-ef7866d89b59.mp4
+
+
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
 
 ```
 Смотри, как менялась цель специальной операции в Украине согласно вашим лидерам. 24 февраля ваш президент сказал, что целью операция является „защита людей, которые восемь лет подвергаются издевательствам и геноциду со стороны киевского режима”. Но правда такова, что Путин развязал войну против мирного украинского населения по всей Украине.   
 ```
+![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
 
 
 Siedzisz przy wielkanocnym stole? A zastanawiałeś się, gdzie są wasi żołnierze. To już ponad 20 tys. waszych braci i synów...  A gdzie oficerowie z okrętu wojennego „Moskwa”? Putin ma waszych żołnierzy za mięso armatnie i dla swoich imperialistycznych celów jest gotowy poświęcić życie jeszcze wielu tysięcy waszych synów. Co Putin powiedział o żołnierzach ze statku? Że zostali ewakuowani? Ale to nie prawda. Rodzice na własną rękę szukają swoich synów i później się dowiadują, że nie żyją. 
@@ -26,7 +46,6 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 Если бы Путин хоть немного ценил жизни своих военных, он бы их не оставлял на поле боя, он бы не приказывал убивать раненых, он бы не жег тела в мобильных крематориях. Тысячи российских семей никогда не получат тела своих сыновей и не узнают, что с ними случилось.
 ```
 
-Pewnie zostali na okręcie tak jak 100ki na Kursku. Pamiętasz? Czekali w bezpiecznych pomieszczeniach i umarli z głodu. Bo ważniejsze było przetransportowanie okrętu niż pomoc.??? (to masz sprawdzić i dodasz, jakby co, a ja to jeszcze wtedy też przetłumaczę).
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
 
