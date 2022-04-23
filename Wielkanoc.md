@@ -2,6 +2,10 @@
 
 Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu na czas świąt. Teraz widać, jakie jest wasze podejście do świąt i do Boga. Żadna wiara nie pozwala na zabijanie niewinnych ludzi, tym bardziej w Święto Zmartwychwstania Jezusa Chrystusa! Ukraińcy przez was muszą spędzać święta w piwnicach i schronach i bez świątecznych potraw!
 
+```
+Идут праздники, время мира и любви. Но Путин не согласился на перемирье на время Пасхи. Теперь виден ваш подход к праздникам и Богу. Ни одна вера мира не разрешает убивать невинных людей, тем более в праздник Воскресения Иисуса Христа! Украинцы из-за вас должны проводить праздники в подвалах и бомбоубежищах, без праздничных блюд.
+```
+
 https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg?raw=true
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
@@ -18,7 +22,6 @@ Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukra
 Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy od Rosji i który ma mniejsze wojsko podniósł się, aby walczyć przeciwko najeźdźcy, przeciwko mordercom cywilów.
 
 ```
-Идут праздники, время мира и любви. Но Путин не согласился на перемирье на время Пасхи. Теперь виден ваш подход к праздникам и Богу. Ни одна вера мира не разрешает убивать невинных людей, тем более в праздник Воскресения Иисуса Христа! Украинцы из-за вас должны проводить праздники в подвалах и бомбоубежищах, без праздничных блюд.
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
 
