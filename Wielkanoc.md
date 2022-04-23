@@ -2,14 +2,17 @@
 
 Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu na czas świąt. Teraz widać, jakie jest wasze podejście do świąt i do Boga. Żadna wiara nie pozwala na zabijanie niewinnych ludzi, tym bardziej w Święto Zmartwychwstania Jezusa Chrystusa! Ukraińcy przez was muszą spędzać święta w piwnicach i schronach i bez świątecznych potraw!
 
+https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg?raw=true
+
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
+https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true
 
+https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4
 
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 
 
-https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4
 
 Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukrainie nie ma faszystów. Jedynymi faszystami są rosyjscy żołnierze. I nawet żołnierzami ich nie można nazwać, bo to są mordercy i gwałciciele. Prawdziwy żołnierz nigdy by nie skrzywdził kobiety, dzieci czy starców. Gdyby Ukraina potrzebowała pomocy, to by o nią poprosiła. A ona jej nie chciała i nie chce! Dlatego teraz musi się bronić przed tą waszą „pomocą i wyzwoleniem”.
 Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy od Rosji i który ma mniejsze wojsko podniósł się, aby walczyć przeciwko najeźdźcy, przeciwko mordercom cywilów.
@@ -23,6 +26,7 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 
 https://user-images.githubusercontent.com/101053692/164890235-d88f0cd6-106d-4297-b5f2-ef7866d89b59.mp4
 
+https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4
 
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
 
