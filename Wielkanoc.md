@@ -19,12 +19,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4
 Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukrainie nie ma faszystów. Jedynymi faszystami są rosyjscy żołnierze. I nawet żołnierzami ich nie można nazwać, bo to są mordercy i gwałciciele. Prawdziwy żołnierz nigdy by nie skrzywdził kobiety, dzieci czy starców. Gdyby Ukraina potrzebowała pomocy, to by o nią poprosiła. A ona jej nie chciała i nie chce! Dlatego teraz musi się bronić przed tą waszą „pomocą i wyzwoleniem”.
 Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy od Rosji i który ma mniejsze wojsko podniósł się, aby walczyć przeciwko najeźdźcy, przeciwko mordercom cywilów.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true
-
-
 ```
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
+
+
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
 
 ```
@@ -49,6 +48,10 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/164900087-0e82079a-ec65-4ab0-b5cf-1dd3b1107ccb.mp4
 
 ```
 Знаешь сколько Путин тратит денег на войну? За участие в войне солдаты получают 300 долларов в месяц, а вагнеровцы 1000 долларов. Миллионы долларов идут на оружие. Траты Путина и европейские санкции скоро потопят вашу страну. Путин делает с России Северную Корею с тоталитарной диктатурой. У вас уже нет ни свободы слова, ни доступа к свободным медиам. Правление олигархов, которых тоже не волнует жизнь обычных граждан, все больше будет негативно сказываться на вашей стране. Поменяйте политику КГБиста и начните бороться за демократию. 
