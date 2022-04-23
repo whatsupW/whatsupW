@@ -27,7 +27,7 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 
 ![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
 
-https://user-images.githubusercontent.com/101053692/164890235-d88f0cd6-106d-4297-b5f2-ef7866d89b59.mp4
+
 
 https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4
 
