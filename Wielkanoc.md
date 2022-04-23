@@ -82,3 +82,8 @@ Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystki
 https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg
 
 ![dziecko-piwnica](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
+
+## Back to main page
+Powrót do strony głównej
+
+https://github.com/whatsupW
