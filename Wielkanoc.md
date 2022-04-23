@@ -14,8 +14,6 @@ https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true
 
 https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4
 
-
-
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 
 Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukrainie nie ma faszystów. Jedynymi faszystami są rosyjscy żołnierze. I nawet żołnierzami ich nie można nazwać, bo to są mordercy i gwałciciele. Prawdziwy żołnierz nigdy by nie skrzywdził kobiety, dzieci czy starców. Gdyby Ukraina potrzebowała pomocy, to by o nią poprosiła. A ona jej nie chciała i nie chce! Dlatego teraz musi się bronić przed tą waszą „pomocą i wyzwoleniem”.
@@ -80,3 +78,7 @@ Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystki
 ```
 Молчание знак согласия! Молчанием ты соглашаешься с тем, что делает Путин. Поэтому мир будет смотреть на вас всех, как на убийц. Вы говорите, чтобы мы перестали вам писать, потому что вы из села и у вас нет влияния на деяния правительства. Но это не правда. Не только большие города должны выражать свое несогласие. Каждый голос имеет значение. Сделай что то, передай правду дальше. Выйдите на улицы. Выходите все каждый день в 18 часов и увидишь, как людей будет становиться все больше. Когда вас будут тысячи, начните кричать про смену власти. Не бойтесь. Когда поменяется власть, вы не понесете наказания за протесты. Осужденными будут те, кто сейчас правит в вашей стране.
 ```
+
+https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg
+
+![dziecko-piwnica](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
