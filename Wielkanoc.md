@@ -32,7 +32,7 @@ https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp
 
 https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924-9b75-6af08f8639c5.mp4
 
-
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierz_w.mp4
 
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
 
