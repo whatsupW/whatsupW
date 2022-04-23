@@ -4,7 +4,6 @@ Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu 
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
-![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 ![prezent2](https://user-images.githubusercontent.com/101053692/164890257-d40441ce-4a2e-4d26-a7ba-ba08398f6ea3.jpg)
 ![prezent3](https://user-images.githubusercontent.com/101053692/164890258-8a5ff0f5-1c4d-49bb-beb2-6df8ce75d41b.jpg)
@@ -24,6 +23,7 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
 
+![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
 
 https://user-images.githubusercontent.com/101053692/164890235-d88f0cd6-106d-4297-b5f2-ef7866d89b59.mp4
 
