@@ -14,6 +14,8 @@ https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true
 
 https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4
 
+
+
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 
 Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukrainie nie ma faszystów. Jedynymi faszystami są rosyjscy żołnierze. I nawet żołnierzami ich nie można nazwać, bo to są mordercy i gwałciciele. Prawdziwy żołnierz nigdy by nie skrzywdził kobiety, dzieci czy starców. Gdyby Ukraina potrzebowała pomocy, to by o nią poprosiła. A ona jej nie chciała i nie chce! Dlatego teraz musi się bronić przed tą waszą „pomocą i wyzwoleniem”.
@@ -22,6 +24,11 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 ```
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
+
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4
+
+https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924-9b75-6af08f8639c5.mp4
+
 
 
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
