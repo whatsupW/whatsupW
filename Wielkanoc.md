@@ -4,13 +4,9 @@ Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu 
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
+
+
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
-![prezent2](https://user-images.githubusercontent.com/101053692/164890257-d40441ce-4a2e-4d26-a7ba-ba08398f6ea3.jpg)
-![prezent3](https://user-images.githubusercontent.com/101053692/164890258-8a5ff0f5-1c4d-49bb-beb2-6df8ce75d41b.jpg)
-![prezent4](https://user-images.githubusercontent.com/101053692/164890259-0a92265d-e7a4-4155-8e23-ba84ecdf1a7d.jpg)
-![prezent5](https://user-images.githubusercontent.com/101053692/164890260-8d0b2aed-f151-4661-ac80-092a172408ad.jpg)
-![prezent6](https://user-images.githubusercontent.com/101053692/164890261-8cd32405-eb1b-4652-92ed-2960362b25bc.jpg)
-![prezent7](https://user-images.githubusercontent.com/101053692/164890262-0bebd1ab-bee6-490a-943c-b53e01da01bb.jpg)
 
 
 https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4
