@@ -80,17 +80,32 @@ Putin not only easily sacrifices the lives of his countrymen, as well as mercena
 Do you know how much money Putin spends on war? Putin pays troops $ 300 a month for participating in the war, and $ 1,000 a month for the Wagnerers. Millions of dollars go to arms. Putin's spending and European sanctions will soon plunge your country. Putin makes you North Korea with a totalitarian dictatorship. You no longer have freedom of speech or access to free media. The rule of the oligarchs, who also do not care for ordinary people but for income, will also have a negative impact on your country. Change the policy of the KGBist and fight for democracy.
 Poles overthrew communism in 1989 and became a free nation. And this is what I wish you.
 
-[ What prices and the state of the economy - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true)
-
-[ How much is the war- link](https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true)
-
-https://user-images.githubusercontent.com/101053692/164900087-0e82079a-ec65-4ab0-b5cf-1dd3b1107ccb.mp4
-
-
 ```
 Знаешь сколько Путин тратит денег на войну? За участие в войне солдаты получают 300 долларов в месяц, а вагнеровцы 1000 долларов. Миллионы долларов идут на оружие. Траты Путина и европейские санкции скоро потопят вашу страну. Путин делает с России Северную Корею с тоталитарной диктатурой. У вас уже нет ни свободы слова, ни доступа к свободным медиам. Правление олигархов, которых тоже не волнует жизнь обычных граждан, все больше будет негативно сказываться на вашей стране. Поменяйте политику КГБиста и начните бороться за демократию. 
 Поляки совместными силами свергли коммунизм в 1989 году и стали свободным народом. И этого я вам желаю. 
 ```
+
+## The state of the economy and product prices
+ 
+[The state of the economy and product prices - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true)
+
+### The state of the economy and product prices - long movie divided into 4 parts- VIBER 
+
+[ The state of the economy and product prices_1 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny1.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164995430-10d08d30-44f8-4399-9a88-ce36c53b5b60.mp4
+
+[ The state of the economy and product prices_2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny2.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164995595-9eb1e4ac-d32e-423e-8135-1c8cb1b18894.mp4
+
+[ The state of the economy and product prices_3 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny3.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164995669-73b18f22-592c-4c9e-979e-ed76f7d67069.mp4
+
+[The state of the economy and product prices_4 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny4.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164995701-96e81b99-0d93-4541-9d9a-700a266b1a7a.mp4
 
 ### Message
 
