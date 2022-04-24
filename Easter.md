@@ -12,7 +12,11 @@ Holidays are coming, that is, the time of peace and love. But Putin refused a tr
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
-[ This is how they have been living in the shelter for 2 months - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true)        
+# How they have been living for 2 months - a long film divided into 2 parts
+
+[How they have been living for 2 months_1 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Azov_schron1.mp4?raw=true)
+
+[How they have been living for 2 months_2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Azov_schron2.mp4?raw=true)     
 
 ![schron](https://user-images.githubusercontent.com/101053692/164916170-794de9cd-3ee9-4bc8-9881-0071f1035b93.JPG?raw=true)
 
