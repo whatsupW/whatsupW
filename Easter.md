@@ -104,7 +104,8 @@ See reality. Join the group in the telegram where you can see all the atrocities
 
 https://t.me/kharkiv_trybunal_bot
 ```
-Znany rosyjski dziennikarz mówi o sytuacji jak rząd hutina kłamie.
+
+## A well-known Russian journalist talks about the situation, bombs are dropped on Ukraine and how the Hutin government lies that it was not them.
 
 https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true
 
