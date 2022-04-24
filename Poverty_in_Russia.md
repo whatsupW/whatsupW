@@ -22,6 +22,4 @@ Chcesz przesłać nam pomysł, text, zdjęcia lun filmiki? Napisz na Twitter @no
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW>)
-
 https://github.com/whatsupW
