@@ -24,6 +24,4 @@ tam dodatkowych sił, by szybko szturmować Kijów.Pierwsza próba posuwania si�
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW>)
-
 https://github.com/whatsupW
