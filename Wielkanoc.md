@@ -10,11 +10,14 @@ Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu 
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
-[Jak mieszkają od 2 miesięcy - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true)
+# Jak mieszkają od 2 miesięcy - długi film podzielony na 2 części
+
+
+[Jak mieszkają od 2 miesięcy_1 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Azov_schron1.mp4?raw=true)
+
+[Jak mieszkają od 2 miesięcy_2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Azov_schron2.mp4?raw=true)
 
 ![schron](https://user-images.githubusercontent.com/101053692/164916170-794de9cd-3ee9-4bc8-9881-0071f1035b93.JPG?raw=true)
-
-[Jak mieszkają od 2 miesięcy - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/w_schronie.mp4?raw=true)
 
 [Schron2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4?raw=true)
 
