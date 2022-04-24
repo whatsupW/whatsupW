@@ -114,6 +114,15 @@ https://github.com/whatsupW/whatsupW/blob/main/img/4/Korytarz.mp4?raw=true
 https://user-images.githubusercontent.com/101053692/164178536-ba0c39ad-3062-40f0-9e17-48238251d476.mp4
 
 
+Fakty o zbrodniach armii rosyjskiej na ludności cywilnej Ukrainy. Zobacz rzeczywistość. Dołącz do grupy w telegramie, gdzie możesz zobaczyć wszystkie bestialstwa rosyjskich wojskowych.
+
+```
+Попробуй увидеть реальность. Присоединись к группе в телеграмм канале, чтобы собственными глазами увидеть жестокость российских военных.
+Факты преступлений армии РФ против мирного населения Украины. 
+
+https://t.me/kharkiv_trybunal_bot
+```
+
 ## Back to main page
 Powrót do strony głównej
 
