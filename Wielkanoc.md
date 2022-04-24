@@ -47,6 +47,8 @@ Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przy
 
 ![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
 
+[Spec operacja w 3,4 dni, pożar na okręcie Moskwa - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/3-4dni.mp4)
+
 [Spec operacja w 3,4 dni, pożar na okręcie Moskwa - link](https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4?raw=true)
 
 
