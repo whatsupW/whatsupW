@@ -28,11 +28,11 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924-9b75-6af08f8639c5.mp4
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierz_w.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierz_w.mp4?raw=true
 
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
 
@@ -59,7 +59,7 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true
 
@@ -87,7 +87,7 @@ Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystki
 Молчание знак согласия! Молчанием ты соглашаешься с тем, что делает Путин. Поэтому мир будет смотреть на вас всех, как на убийц. Вы говорите, чтобы мы перестали вам писать, потому что вы из села и у вас нет влияния на деяния правительства. Но это не правда. Не только большие города должны выражать свое несогласие. Каждый голос имеет значение. Сделай что то, передай правду дальше. Выйдите на улицы. Выходите все каждый день в 18 часов и увидишь, как людей будет становиться все больше. Когда вас будут тысячи, начните кричать про смену власти. Не бойтесь. Когда поменяется власть, вы не понесете наказания за протесты. Осужденными будут те, кто сейчас правит в вашей стране.
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg
+https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg?raw=true
 
 ![dziecko-piwnica](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
 
