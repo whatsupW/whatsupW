@@ -45,6 +45,4 @@ Rankiem 2 marca wojska rosyjskie uderzyły w jeden z budynków Charkowskiego Uni
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW>)
-
 https://github.com/whatsupW
