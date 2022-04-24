@@ -16,7 +16,7 @@ Holidays are coming, that is, the time of peace and love. But Putin refused a tr
 
 ![schron](https://user-images.githubusercontent.com/101053692/164916170-794de9cd-3ee9-4bc8-9881-0071f1035b93.JPG?raw=true)
 
-[ Shelter2- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4)
+[ Shelter2- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164968140-0076e76d-a41a-410b-94c0-c1eafbf484ba.mp4
 
