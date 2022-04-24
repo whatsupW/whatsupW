@@ -37,6 +37,4 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/zniszczenia.mp4?raw=true
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW>)
-
 https://github.com/whatsupW
