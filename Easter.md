@@ -2,6 +2,8 @@
 
 English text translated by google
 
+### Message
+
 Holidays are coming, that is, the time of peace and love. But Putin refused a truce during the holidays. Now you can see what your approach to Christmas and God is like. No faith allows the killing of innocent people, especially on the Feast of the Resurrection of Jesus Christ! Because of you, Ukrainians must spend their holidays in cellars and shelters and without Easter dishes!
 
 ```
@@ -28,6 +30,8 @@ https://user-images.githubusercontent.com/101053692/164968140-0076e76d-a41a-410b
 
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 
+### Message
+
 You claim that your special mission is to liberate Donbass. But from whom? There are no fascists in Ukraine. The only fascists are Russian soldiers. And even soldiers cannot be called them, because they are murderers and rapists. A real soldier would never hurt a woman, children or the elderly. If Ukraine needed help, it would have asked for it. And she did not want it and does not want it! Therefore, now he must defend himself against this "help and deliverance" of yours.
 Your attack on Ukraine has only united the Ukrainians. A country that is smaller than Russia and has a smaller army rose to fight against the invaders, against the murderers of civilians.
 
@@ -43,6 +47,8 @@ https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924
 
 https://user-images.githubusercontent.com/101053692/164966921-3e8a8a46-b147-4ad3-bed3-e04a4f35cffb.mp4
 
+### Message
+
 See how the purpose of the special mission in Ukraine has changed according to your leaders. On February 24, your president said that the mission's goal is to defend the people of Donbas who have suffered eight years of genocide perpetrated by the Kiev regime. However, the truth is that Putin has solved the war against Ukrainian civilians across the country!
 
 ```
@@ -57,6 +63,7 @@ See how the purpose of the special mission in Ukraine has changed according to y
 
 [ War in 3-4 days - link](https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4?raw=true)
 
+### Message
 
 Are you sitting at the Easter table? And you wondered where your soldiers are. It is already over 20 thousand. of your brothers and sons ... And where are the officers from the warship "Moscow"? Putin has your soldiers for cannon fodder and is ready to sacrifice the lives of many thousands of your sons for his imperialist purposes. What did Putin say about the soldiers on the ship? That they were evacuated? But that's not true. Parents look for their sons on their own and find out later that they are dead.
 If Putin valued his army to some extent, he would not leave soldiers on the battlefield, kill the wounded, or burn bodies in mobile crematoria. Thousands of Russian families will never see their sons' bodies or find out what happened.
@@ -67,6 +74,8 @@ Putin not only easily sacrifices the lives of his countrymen, as well as mercena
 Ты сидишь за праздничным столом? А ты задумывался над тем, где ваши солдаты. Погибло уже больше 20 тысяч братьев и сыновей…. А где офицеры с корсара „Москва”? Для Путина военные как пушечное мясо и для своих империалистических целей он готов пожертвовать жизнями еще многих ваших сыновей. Что Путин сказал про солдат с корабля? Что их эвакуировали? Но это не правда. Родители самостоятельно ищут своих сыновей и потом узнают, что они мертвы. 
 Если бы Путин хоть немного ценил жизни своих военных, он бы их не оставлял на поле боя, он бы не приказывал убивать раненых, он бы не жег тела в мобильных крематориях. Тысячи российских семей никогда не получат тела своих сыновей и не узнают, что с ними случилось.
 ```
+
+### Message
 
 Do you know how much money Putin spends on war? Putin pays troops $ 300 a month for participating in the war, and $ 1,000 a month for the Wagnerers. Millions of dollars go to arms. Putin's spending and European sanctions will soon plunge your country. Putin makes you North Korea with a totalitarian dictatorship. You no longer have freedom of speech or access to free media. The rule of the oligarchs, who also do not care for ordinary people but for income, will also have a negative impact on your country. Change the policy of the KGBist and fight for democracy.
 Poles overthrew communism in 1989 and became a free nation. And this is what I wish you.
@@ -83,6 +92,8 @@ https://user-images.githubusercontent.com/101053692/164900087-0e82079a-ec65-4ab0
 Поляки совместными силами свергли коммунизм в 1989 году и стали свободным народом. И этого я вам желаю. 
 ```
 
+### Message
+
 Why do you think all European countries suddenly united against Russia? To make your life difficult? NOT!!! The sanctions are to stop the slaughter of Ukrainian civilians by Putin and your army.
 
 ```
@@ -93,6 +104,8 @@ Why do you think all European countries suddenly united against Russia? To make 
 
 ![hutin](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg)
 
+### Message
+
 You silently agree to what Putin is doing, so the world will see all of you as murderers. Are you saying that we should stop writing to you because you are from the provinces and you have no influence on what is going on? It's not true. Only big cities are to protest? Every vote counts. Do something about it !!! Send the truth on !!! Get out on the streets! Every day, leave at 6pm and you will see how people keep arriving. When there are thousands of you, just start screaming about the change of power. Do not be afraid! If you change your government, you will not be punished for protests. Those who rule now will be judged.
 
 ```
@@ -102,6 +115,8 @@ You silently agree to what Putin is doing, so the world will see all of you as m
 [ hutin 2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg?raw=true)
 
 ![hutin2](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
+
+### Message
 
 See reality. Join the group in the telegram where you can see all the atrocities of the Russian military. 
 
