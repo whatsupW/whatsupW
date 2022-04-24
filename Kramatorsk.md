@@ -73,6 +73,4 @@ Tuż przed wojną kompleksy te widziano podczas wspólnych ćwiczeń Rosji i Bia
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW>)
-
 https://github.com/whatsupW
