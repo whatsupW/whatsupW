@@ -104,7 +104,11 @@ See reality. Join the group in the telegram where you can see all the atrocities
 
 https://t.me/kharkiv_trybunal_bot
 ```
+Znany rosyjski dziennikarz mówi o sytuacji jak rząd hutina kłamie.
 
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
 
 ## Back to main page
 Powrót do strony głównej
