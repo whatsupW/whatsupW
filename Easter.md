@@ -12,12 +12,9 @@ https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true
-
+https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true         This is how they have been living in the shelter for 2 months - link to the film
 
 ![schron](https://user-images.githubusercontent.com/101053692/164916170-794de9cd-3ee9-4bc8-9881-0071f1035b93.JPG?raw=true)
-
-Schron - link do filmu jest wyżej
 
 https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg?raw=true
 
