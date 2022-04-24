@@ -95,7 +95,13 @@ Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystki
 
 https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg?raw=true
 
-![dziecko-piwnica](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
+![hutin2](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
+
+## Znany rosyjski dziennikarz mówi o sytuacji, zrzucanych bombach na Ukrainę i jak rząd hutina kłamie, że to nie oni.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
 
 ## Back to main page
 Powrót do strony głównej
