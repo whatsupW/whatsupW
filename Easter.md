@@ -27,11 +27,11 @@ Your attack on Ukraine has only united the Ukrainians. A country that is smaller
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924-9b75-6af08f8639c5.mp4
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierz_w.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierz_w.mp4?raw=true
 
 See how the purpose of the special mission in Ukraine has changed according to your leaders. On February 24, your president said that the mission's goal is to defend the people of Donbas who have suffered eight years of genocide perpetrated by the Kiev regime. However, the truth is that Putin has solved the war against Ukrainian civilians across the country!
 
@@ -58,7 +58,7 @@ Putin not only easily sacrifices the lives of his countrymen, as well as mercena
 Do you know how much money Putin spends on war? Putin pays troops $ 300 a month for participating in the war, and $ 1,000 a month for the Wagnerers. Millions of dollars go to arms. Putin's spending and European sanctions will soon plunge your country. Putin makes you North Korea with a totalitarian dictatorship. You no longer have freedom of speech or access to free media. The rule of the oligarchs, who also do not care for ordinary people but for income, will also have a negative impact on your country. Change the policy of the KGBist and fight for democracy.
 Poles overthrew communism in 1989 and became a free nation. And this is what I wish you.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true
 
@@ -85,7 +85,7 @@ You silently agree to what Putin is doing, so the world will see all of you as m
 Молчание знак согласия! Молчанием ты соглашаешься с тем, что делает Путин. Поэтому мир будет смотреть на вас всех, как на убийц. Вы говорите, чтобы мы перестали вам писать, потому что вы из села и у вас нет влияния на деяния правительства. Но это не правда. Не только большие города должны выражать свое несогласие. Каждый голос имеет значение. Сделай что то, передай правду дальше. Выйдите на улицы. Выходите все каждый день в 18 часов и увидишь, как людей будет становиться все больше. Когда вас будут тысячи, начните кричать про смену власти. Не бойтесь. Когда поменяется власть, вы не понесете наказания за протесты. Осужденными будут те, кто сейчас правит в вашей стране.
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg
+https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg?raw=true
 
 ![hutin2](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
 
