@@ -1,5 +1,7 @@
 ## Wielkanoc 24.04.2022
 
+### Wiadomość 
+
 Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu na czas świąt. Teraz widać, jakie jest wasze podejście do świąt i do Boga. Żadna wiara nie pozwala na zabijanie niewinnych ludzi, tym bardziej w Święto Zmartwychwstania Jezusa Chrystusa! Ukraińcy przez was muszą spędzać święta w piwnicach i schronach i bez świątecznych potraw!
 
 ```
@@ -27,6 +29,8 @@ https://user-images.githubusercontent.com/101053692/164968140-0076e76d-a41a-410b
 
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 
+### Wiadomość 
+
 Twierdzicie, że wasza misja specjalna ma wyzwolić Donbas. Ale od kogo? Na Ukrainie nie ma faszystów. Jedynymi faszystami są rosyjscy żołnierze. I nawet żołnierzami ich nie można nazwać, bo to są mordercy i gwałciciele. Prawdziwy żołnierz nigdy by nie skrzywdził kobiety, dzieci czy starców. Gdyby Ukraina potrzebowała pomocy, to by o nią poprosiła. A ona jej nie chciała i nie chce! Dlatego teraz musi się bronić przed tą waszą „pomocą i wyzwoleniem”.
 Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy od Rosji i który ma mniejsze wojsko podniósł się, aby walczyć przeciwko najeźdźcy, przeciwko mordercom cywilów.
 
@@ -41,6 +45,8 @@ https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924
 [Żołnierz opowiada jak dowódca karze im strzelać do cywili - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierze.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164966921-3e8a8a46-b147-4ad3-bed3-e04a4f35cffb.mp4
+
+### Wiadomość 
 
 Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przywódców. 24 lutego wasz prezydent powiedział, że celem misji jest obrona ludzi na Donbasie, którzy 8 lat cierpią z powodu ludobójstwa dokonanego przez kijowski reżim. Jednak prawda jest taka, że Putin rozwiązał wojnę przeciwko ukraińskiej ludności cywilnej w całym kraju!
 
@@ -57,6 +63,8 @@ Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przy
 [Spec operacja w 3,4 dni, pożar na okręcie Moskwa - link](https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4?raw=true)
 
 
+### Wiadomość 
+
 Siedzisz przy wielkanocnym stole? A zastanawiałeś się, gdzie są wasi żołnierze. To już ponad 20 tys. waszych braci i synów...  A gdzie oficerowie z okrętu wojennego „Moskwa”? Putin ma waszych żołnierzy za mięso armatnie i dla swoich imperialistycznych celów jest gotowy poświęcić życie jeszcze wielu tysięcy waszych synów. Co Putin powiedział o żołnierzach ze statku? Że zostali ewakuowani? Ale to nie prawda. Rodzice na własną rękę szukają swoich synów i później się dowiadują, że nie żyją. 
 Gdyby Putin przynajmiej w jakimś stopniu cenił swoje wojsko, to by nie zostawiał żołnierzy na polu walki, nie dobijał rannych albo nie palił w mobilnych krematoriach ciał. Tysiące rosyjskich rodzin, nigdy nie zobaczą ciała swoich synów, ani nie dowiedzą się, co się stało. 
 Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z innych państw. On zajmuje się werbowaniem żołnierzy z Mołdawii, Czeczenii, Dagestanu i nawet Etiopii. 
@@ -67,6 +75,8 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 Если бы Путин хоть немного ценил жизни своих военных, он бы их не оставлял на поле боя, он бы не приказывал убивать раненых, он бы не жег тела в мобильных крематориях. Тысячи российских семей никогда не получат тела своих сыновей и не узнают, что с ними случилось.
 ```
 
+### Wiadomość 
+ 
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
 
@@ -82,6 +92,8 @@ https://user-images.githubusercontent.com/101053692/164900087-0e82079a-ec65-4ab0
 Поляки совместными силами свергли коммунизм в 1989 году и стали свободным народом. И этого я вам желаю. 
 ```
 
+### Wiadomość 
+
 Myślisz, dlaczego nagle wszystkie kraje europejskie się zjednoczyły przeciwko Rosji? By wam utrudnić życie? NIE!!! Sankcje są po to, aby powstrzymać rzeź ukraińskich cywilów, której dokonuje putin i wasze wojsko.
 
 ```
@@ -91,6 +103,8 @@ Myślisz, dlaczego nagle wszystkie kraje europejskie się zjednoczyły przeciwko
 [ hutin z 1500 zdjęć wojny - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg?raw=true)
 
 ![hutin](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg)
+
+### Wiadomość 
 
 Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystkich postrzegał jak morderców. Mówicie, żebyśmy przestali do was pisać, bo jesteście z prowincji i nie macie wpływu na to co się dzieje? To nieprawda. Mają protestować tylko duże miasta? Każdy głos się liczy. Zrób coś z tym!!!  Prześlij prawdę dalej!!! Wychodźcie na ulice! Wychodźcie wszyscy codziennie o 18 i zobaczysz, jak ludzi będzie przybywać. Jak będą was tysiące, dopiero zacznijcie krzyczeć o zmianie władzy. Nie bójcie się! Jak zmienicie swój rząd, nie poniesiecie kary za protesty. Zostaną osądzeni ci, którzy teraz rządzą.  
 
