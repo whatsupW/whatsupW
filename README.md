@@ -1,6 +1,8 @@
 # Easter 24.04.2022 The second month of the war
 Wielkanoc 24.04.2022 Drugi miesiąć wojny
 
+[Easter, English version - link](https://github.com/whatsupW/whatsupW/blob/main/Easter.md) 
+
 [Wielkanoc, Polska wersja - link](https://github.com/whatsupW/whatsupW/blob/main/Wielkanoc.md)
 
 # Humanitarian_corridor 20.04.2022
@@ -129,7 +131,5 @@ Russian version
 
   ## Back to main page
 Powrót do strony głównej
-
-[<Readme.md>](<https://github.com/whatsupW/whatsupW>)
 
 https://github.com/whatsupW
