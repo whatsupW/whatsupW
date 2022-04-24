@@ -115,6 +115,4 @@ https://github.com/whatsupW/whatsupW/blob/main/Conversation.md
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md>)
-
 https://github.com/whatsupW
