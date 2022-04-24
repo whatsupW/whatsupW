@@ -86,13 +86,23 @@ Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narod
 
 # Jak mieszkają od 2 miesięcy - długi film podzielony na 4 części - VIBER 
 
-
-
+[ Stan gospodarki i ceny produktów_1 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny1.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164995430-10d08d30-44f8-4399-9a88-ce36c53b5b60.mp4
 
+[ Stan gospodarki i ceny produktów_2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny2.mp4?raw=true)
 
+https://user-images.githubusercontent.com/101053692/164995595-9eb1e4ac-d32e-423e-8135-1c8cb1b18894.mp4
 
+[ Stan gospodarki i ceny produktów_3 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny3.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164995669-73b18f22-592c-4c9e-979e-ed76f7d67069.mp4
+
+[ Stan gospodarki i ceny produktów_4 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny4.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164995701-96e81b99-0d93-4541-9d9a-700a266b1a7a.mp4
+
+# Ile kosztuje wojna
 
 [ Ile kosztuje wojna - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true)
 
