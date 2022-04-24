@@ -8,7 +8,7 @@ Holidays are coming, that is, the time of peace and love. But Putin refused a tr
 Идут праздники, время мира и любви. Но Путин не согласился на перемирье на время Пасхи. Теперь виден ваш подход к праздникам и Богу. Ни одна вера мира не разрешает убивать невинных людей, тем более в праздник Воскресения Иисуса Христа! Украинцы из-за вас должны проводить праздники в подвалах и бомбоубежищах, без праздничных блюд.
 ```
 
-https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg?raw=true
+[Baby in the basement - link](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg?raw=true)
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
