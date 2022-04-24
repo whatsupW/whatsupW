@@ -126,6 +126,4 @@ https://t.me/kharkiv_trybunal_bot
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/blob/main/README.md>)
-
 https://github.com/whatsupW
