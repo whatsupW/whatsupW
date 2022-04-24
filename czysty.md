@@ -17,6 +17,4 @@ https://user-images.githubusercontent.com/101053692/162613352-3be57757-ec98-4f7e
 ## Back to main page
 Powrót do strony głównej
 
-[<Readme.md>](<https://github.com/whatsupW/whatsupW/>)
-
 https://github.com/whatsupW
