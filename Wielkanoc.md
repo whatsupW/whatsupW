@@ -6,22 +6,19 @@ Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu 
 Идут праздники, время мира и любви. Но Путин не согласился на перемирье на время Пасхи. Теперь виден ваш подход к праздникам и Богу. Ни одна вера мира не разрешает убивать невинных людей, тем более в праздник Воскресения Иисуса Христа! Украинцы из-за вас должны проводить праздники в подвалах и бомбоубежищах, без праздничных блюд.
 ```
 
-https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg?raw=true
+[Dziecko z piwnicy - link](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg?raw=true)
 
 ![dziecko-piwnica](https://user-images.githubusercontent.com/101053692/164890233-408d075a-ac6e-45e2-9975-24762b478e97.jpg)
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true
-
+[Jak mieszkają od 2 miesięcy - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true)
 
 ![schron](https://user-images.githubusercontent.com/101053692/164916170-794de9cd-3ee9-4bc8-9881-0071f1035b93.JPG?raw=true)
 
-Schron - link do filmu jest wyżej
-
-https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4
+[Schron2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4)
 
 https://user-images.githubusercontent.com/101053692/164968140-0076e76d-a41a-410b-94c0-c1eafbf484ba.mp4
 
-https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg?raw=true
+[ Prezent od rosjan, bomba zchowana w zabawce- link](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg?raw=true)
 
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
 
@@ -32,11 +29,11 @@ Wasz atak na Ukrainę, tylko zjednoczył Ukraińców. Kraj, który jest mniejszy
 Вы утверждаете, что специальная операция в Украине проводиться для освобождения Донбасса. От кого? В Украине нет фашистов. Единственные фашисты, это российские солдаты. Хотя их и солдатами назвать нельзя. Настоящий солдат никогда бы не навредил женщине, ребенку или пожилому человеку. Если бы Украина нуждалась в помощи, она бы ее попросила. Но она ее не хотела и не хочет! Поэтому сейчас ей нужно защищаться от этой вашей „помощи и освобождения”. Ваша агрессия только объединила Украинцев. Страна, которая меньше России и у которой меньше армия восстала против захватчика, против убийц мирного населения. 
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4?raw=true
+[Żołnierz mówi co żony, że na rakietach piszą Jezus zmartwychwstał i nimi strzelają - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924-9b75-6af08f8639c5.mp4
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierze.mp4?raw=true
+[Żołnierz opowiada jak dowódca karze im strzelać do cywili - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierze.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164966921-3e8a8a46-b147-4ad3-bed3-e04a4f35cffb.mp4
 
@@ -45,11 +42,12 @@ Zobacz, jak się zmieniał cel misji specjalnej na Ukrainie według waszych przy
 ```
 Смотри, как менялась цель специальной операции в Украине согласно вашим лидерам. 24 февраля ваш президент сказал, что целью операция является „защита людей, которые восемь лет подвергаются издевательствам и геноциду со стороны киевского режима”. Но правда такова, что Путин развязал войну против мирного украинского населения по всей Украине.   
 ```
-https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg?raw=true
+
+[Jak zmieniają się wypowiedzi rządzących od początku "misji specjalnej" - link](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg?raw=true)
 
 ![narracja](https://user-images.githubusercontent.com/101053692/164890251-ecaae12a-e3ae-4a45-a4d7-c06ef6102351.jpg)
 
-https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4?raw=true
+[Spec operacja w 3,4 dni, pożar na okręcie Moskwa - link](https://user-images.githubusercontent.com/101053692/164890263-c86a7ffe-3f88-4f74-a586-4f7fd132f608.mp4?raw=true)
 
 
 Siedzisz przy wielkanocnym stole? A zastanawiałeś się, gdzie są wasi żołnierze. To już ponad 20 tys. waszych braci i synów...  A gdzie oficerowie z okrętu wojennego „Moskwa”? Putin ma waszych żołnierzy za mięso armatnie i dla swoich imperialistycznych celów jest gotowy poświęcić życie jeszcze wielu tysięcy waszych synów. Co Putin powiedział o żołnierzach ze statku? Że zostali ewakuowani? Ale to nie prawda. Rodzice na własną rękę szukają swoich synów i później się dowiadują, że nie żyją. 
@@ -65,9 +63,9 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true
+[ Stan gospodarki i ceny produktów - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true)
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true
+[ Ile kosztuje wojna - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164900087-0e82079a-ec65-4ab0-b5cf-1dd3b1107ccb.mp4
 
@@ -83,9 +81,9 @@ Myślisz, dlaczego nagle wszystkie kraje europejskie się zjednoczyły przeciwko
 Ты думаешь, почему вдруг все европейские страны объединились против России? Чтобы вам испортить жизнь? Нет! Санкции для того, чтобы остановить резню украинского мирного населения, которое проводит Путин и ваши военные. 
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg?raw=true
+[ hutin z 1500 zdjęć wojny - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg?raw=true)
 
-![dziecko-piwnica](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg)
+![hutin](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin.jpg)
 
 Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystkich postrzegał jak morderców. Mówicie, żebyśmy przestali do was pisać, bo jesteście z prowincji i nie macie wpływu na to co się dzieje? To nieprawda. Mają protestować tylko duże miasta? Każdy głos się liczy. Zrób coś z tym!!!  Prześlij prawdę dalej!!! Wychodźcie na ulice! Wychodźcie wszyscy codziennie o 18 i zobaczysz, jak ludzi będzie przybywać. Jak będą was tysiące, dopiero zacznijcie krzyczeć o zmianie władzy. Nie bójcie się! Jak zmienicie swój rząd, nie poniesiecie kary za protesty. Zostaną osądzeni ci, którzy teraz rządzą.  
 
@@ -93,13 +91,13 @@ Milczeniem zgadzasz się na to, co robi Putin, więc świat będzie was wszystki
 Молчание знак согласия! Молчанием ты соглашаешься с тем, что делает Путин. Поэтому мир будет смотреть на вас всех, как на убийц. Вы говорите, чтобы мы перестали вам писать, потому что вы из села и у вас нет влияния на деяния правительства. Но это не правда. Не только большие города должны выражать свое несогласие. Каждый голос имеет значение. Сделай что то, передай правду дальше. Выйдите на улицы. Выходите все каждый день в 18 часов и увидишь, как людей будет становиться все больше. Когда вас будут тысячи, начните кричать про смену власти. Не бойтесь. Когда поменяется власть, вы не понесете наказания за протесты. Осужденными будут те, кто сейчас правит в вашей стране.
 ```
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg?raw=true
+[hutin krew na rękach - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg?raw=true)
 
 ![hutin2](https://github.com/whatsupW/whatsupW/blob/main/img/5/hutin2.jpg)
 
 ## Znany rosyjski dziennikarz mówi o sytuacji, zrzucanych bombach na Ukrainę i jak rząd hutina kłamie, że to nie oni.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true
+[Znany dziennikarz mówi jak naprawdę jest- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
 
