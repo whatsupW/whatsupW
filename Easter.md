@@ -31,7 +31,9 @@ https://github.com/whatsupW/whatsupW/blob/main/img/5/Jezus_zmartwychwsa%C5%82.mp
 
 https://user-images.githubusercontent.com/101053692/164909626-501e6444-2e45-4924-9b75-6af08f8639c5.mp4
 
-https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierz_w.mp4?raw=true
+https://github.com/whatsupW/whatsupW/blob/main/img/5/Zolnierze.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/164966921-3e8a8a46-b147-4ad3-bed3-e04a4f35cffb.mp4
 
 See how the purpose of the special mission in Ukraine has changed according to your leaders. On February 24, your president said that the mission's goal is to defend the people of Donbas who have suffered eight years of genocide perpetrated by the Kiev regime. However, the truth is that Putin has solved the war against Ukrainian civilians across the country!
 
