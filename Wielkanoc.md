@@ -85,11 +85,11 @@ Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narod
 Поляки совместными силами свергли коммунизм в 1989 году и стали свободным народом. И этого я вам желаю. 
 ```
 
-# Stan gospodarki i ceny produktów
+## Stan gospodarki i ceny produktów
  
 [ Stan gospodarki i ceny produktów - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true)
 
-# Jak mieszkają od 2 miesięcy - długi film podzielony na 4 części - VIBER 
+### Stan gospodarki i ceny produktów - długi film podzielony na 4 części - VIBER 
 
 [ Stan gospodarki i ceny produktów_1 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny1.mp4?raw=true)
 
