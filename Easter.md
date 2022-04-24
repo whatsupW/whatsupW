@@ -1,4 +1,4 @@
-# Easter 24.04.2022 The second month of the war
+# Easter 24-25.04.2022 The second month of the war
 
 English text translated by google
 
