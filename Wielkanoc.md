@@ -80,7 +80,19 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
 
+# Stan gospodarki i ceny produktów
+ 
 [ Stan gospodarki i ceny produktów - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true)
+
+# Jak mieszkają od 2 miesięcy - długi film podzielony na 4 części - VIBER 
+
+
+
+
+https://user-images.githubusercontent.com/101053692/164995430-10d08d30-44f8-4399-9a88-ce36c53b5b60.mp4
+
+
+
 
 [ Ile kosztuje wojna - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true)
 
