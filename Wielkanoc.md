@@ -14,6 +14,8 @@ Nadchodzą święta, czyli czas pokoju i miłości. Ale Putin odmówił rozejmu 
 
 ![schron](https://user-images.githubusercontent.com/101053692/164916170-794de9cd-3ee9-4bc8-9881-0071f1035b93.JPG?raw=true)
 
+[Jak mieszkają od 2 miesięcy - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/w_schronie.mp4?raw=true)
+
 [Schron2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164968140-0076e76d-a41a-410b-94c0-c1eafbf484ba.mp4
