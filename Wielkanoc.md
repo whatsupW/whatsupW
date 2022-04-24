@@ -80,6 +80,11 @@ Putin nie tylko łatwo poświęca życie swoich rodaków, a także najemników z
 Wiesz, ile Putin wydaje pieniędzy na wojnę? Za udział w wojnie Putin płaci żołnierzom 300 dolarów miesięcznie, a Wagnerowcom 1000. Miliony dolarów idą na broń. Wydatki Putina i europejskie sankcje wkrótce pogrążą wasz kraj. Putin robi z was Koreę Północną z dyktaturą totalitarną. Już nie macie wolności słowa ani dostępu do wolnych mediów. Rządy oligarchów, którym również nie zależy na zwykłych ludziach tylko na dochodach, będą również wywierały negatywny wpływ na wasze państwo. Zmieńcie politykę KGBisty i zawalczcie o demokrację.  
 Polacy wspólnymi siłami obalili komunizm w 1989 roku i stali się wolnym narodem. I tego ja wam życzę.
 
+```
+Знаешь сколько Путин тратит денег на войну? За участие в войне солдаты получают 300 долларов в месяц, а вагнеровцы 1000 долларов. Миллионы долларов идут на оружие. Траты Путина и европейские санкции скоро потопят вашу страну. Путин делает с России Северную Корею с тоталитарной диктатурой. У вас уже нет ни свободы слова, ни доступа к свободным медиам. Правление олигархов, которых тоже не волнует жизнь обычных граждан, все больше будет негативно сказываться на вашей стране. Поменяйте политику КГБиста и начните бороться за демократию. 
+Поляки совместными силами свергли коммунизм в 1989 году и стали свободным народом. И этого я вам желаю. 
+```
+
 # Stan gospodarki i ceny produktów
  
 [ Stan gospodarki i ceny produktów - link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Ceny.mp4?raw=true)
@@ -107,12 +112,6 @@ https://user-images.githubusercontent.com/101053692/164995701-96e81b99-0d93-4541
 [ Ile kosztuje wojna - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/1-ile_kosztuje-wojna.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164900087-0e82079a-ec65-4ab0-b5cf-1dd3b1107ccb.mp4
-
-
-```
-Знаешь сколько Путин тратит денег на войну? За участие в войне солдаты получают 300 долларов в месяц, а вагнеровцы 1000 долларов. Миллионы долларов идут на оружие. Траты Путина и европейские санкции скоро потопят вашу страну. Путин делает с России Северную Корею с тоталитарной диктатурой. У вас уже нет ни свободы слова, ни доступа к свободным медиам. Правление олигархов, которых тоже не волнует жизнь обычных граждан, все больше будет негативно сказываться на вашей стране. Поменяйте политику КГБиста и начните бороться за демократию. 
-Поляки совместными силами свергли коммунизм в 1989 году и стали свободным народом. И этого я вам желаю. 
-```
 
 ### Wiadomość 
 
