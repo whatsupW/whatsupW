@@ -17,6 +17,10 @@ https://github.com/whatsupW/whatsupW/blob/main/img/5/schron.mp4?raw=true
 
 Schron - link do filmu jest wyżej
 
+https://github.com/whatsupW/whatsupW/blob/main/img/5/schron2.mp4
+
+https://user-images.githubusercontent.com/101053692/164968140-0076e76d-a41a-410b-94c0-c1eafbf484ba.mp4
+
 https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg?raw=true
 
 ![prezent1](https://user-images.githubusercontent.com/101053692/164890252-9c6233d6-8535-49e6-bcaa-eb987a3a0213.jpg)
