@@ -43,8 +43,8 @@ https://user-images.githubusercontent.com/101053692/162839049-79bb1fcb-7a0f-48d6
 https://github.com/whatsupW/whatsupW/blob/main/img/zbrodnie/Rus_zostawiaja_soich.mp4?raw=true
 
 
-## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD - Don't send it via Whatsup, they'll block you
-UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT - Nie wysyłaj tego przez Whatsup co Cię zablokują
+## WARNING. DRASTIC. FOR PEOPLE OVER 18 YEARS OLD - Don't send it via Whatsup, they'll block you. Send them a link to our site: 
+UWAGA. DRASTYCZNE. DLA OSÓB POWYŻEJ 18 LAT - Nie wysyłaj tego przez Whatsup co Cię zablokują. Prześlij im link do naszej strony: 
 
 ## Bucha. Burned bodies
 Bucza. Spalone ciała 
