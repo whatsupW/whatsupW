@@ -1,3 +1,11 @@
+# Rusinizm
+
+[Rusinism - English version - Link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rusinism.md)
+
+[Rusinizm - wersj polska - Link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rusinizm.md)
+
+[Russians who explain the truth - Rosjanie, który tłumaczą jaka jest prawda](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rosjanie.md)
+
 # Easter 24.04.2022 The second month of the war
 Wielkanoc 24.04.2022 Drugi miesiąć wojny
 
