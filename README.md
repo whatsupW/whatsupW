@@ -1,3 +1,9 @@
+# May 9, 2022
+
+[May 9, 2022 - English version - Link](https://github.com/whatsupW/whatsupW/blob/main/May_9_2022.md)
+
+[9 maj 2022- wersj polska - Link](https://github.com/whatsupW/whatsupW/blob/main/9_maj_2022.md)
+
 # Rusinizm
 
 [Rusinism - English version - Link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rusinism.md)
