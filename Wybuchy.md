@@ -62,6 +62,7 @@ https://user-images.githubusercontent.com/101053692/165710684-f648a092-68e5-4124
 
 https://user-images.githubusercontent.com/101053692/165832894-7c9a3ea4-98ff-462c-bc3b-c6bcdfe1be91.mp4
 
+## April 29 Many buildings burn in Russia after a fire at the Ishim shopping center. On April 30, the 120-megawatt GRES-2 coal power plant was reportedly sabotaged in Sakhalin. On May 1, burning fuel oil tanks in Mytishchi, a fuel warehouse just thirty minutes from the Kremlin. May 1: Damage to a railway bridge in the Russian Kursk region as a result of sabotage. May 2 A fire at an ammunition factory in Perm, near the Urals. May 3: A fire in a four-story pro-Kremlin publishing house in the Bogorodskaya district of the Moscow region
 29 kwietnia Wiele budynków płonie w Rosji po pożarze w centrum handlowym w Ishim 
 
 30 kwietnia 120-megawatowa elektrownia węglowa GRES-2 została podobno sabotowana na Sachalinie
@@ -78,12 +79,14 @@ https://user-images.githubusercontent.com/101053692/165832894-7c9a3ea4-98ff-462c
 
 https://user-images.githubusercontent.com/101053692/167016004-5246198a-9d11-4114-a26c-88df05235e89.mp4
 
+## May 4 A large fire in the Dzerzhinsky industrial zone of the Nizhny Novgorod region
 4 maja Duży pożar w strefie przemysłowej Dzierżyńskiego w regionie Niżny Nowogród
 
 [4 maj Dzierżyńsk - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/4majDzierzynsk.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167016032-c9344ec7-6d0a-4bc0-8106-ddfbe0b2ee7c.mp4
 
+## It will be interesting to this day, Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
 Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
 
 Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie?? 
@@ -100,12 +103,13 @@ Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie??
 28 kwiecień 7 aut z literą Z płonie w Moskwie
 Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
 ```
+## Young Russians understood the threat, they do not want military mobilization and go to fight. They set fire to recruitment and registration offices to stop the spring draft. In the Moscow region, in Voronezh, in the Sverdlovsk region, in the Ivanów region and in Mordovia: https://t.me/stories_media/1108 It's a pity it's only now after 70 days. And you thought what you can do? Are you checking the internet for the truth? See telegram https://t.me/kharkiv_trybunal_bot here the international tribunal presents your actions in Ukraine. Will you continue to watch the propaganda on TV that there are plastic monuments in Mariupol, or that children are jumping around happily in kindergartens? What parent would let a child go to kindergarten when the war is going on? Or you sew uniforms for a parade for prisoners of war in Ukraine to show you a movie of how they joined Russia. How one must be perfidious, who would make it up. Just a hutin, a man with a KGB history.
 Młodzi rosjanie zrozumieli zagrożenie, nie chcą mobilizacji wojskowej i iść walczyć. Podpalają urzędy werbunkowe i meldunkowe, aby powstrzymać wiosenny pobór. W obwodzie moskiewskim, w Woroneżu, w obwodzie swierdłowskim, obwodzie iwanowskim i Mordowii: https://t.me/stories_media/1108 
 Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Sprawdzasz internet za prawdą? Zobacz telegram https://t.me/kharkiv_trybunal_bot tu międzynarodowy trybunał przedstawia Wasze działania na Ukrainie. Czy będziesz dalej oglądał propagandę w telewizji, że są pomniki z plastiku w Mariupolu, albo że dzieci wesoło podskakują w przedszkolach? Jaki rodzic wypuścił by dziecko do przedszkola jak trwa wojna? Albo wasi szyją mundury na paradę dla jeńców w Ukrainie by pokazać Wam film jak się przyłączyli do Rosji. Jak trzeba być perfidnym, kto by to wymyślił. Tylko hutin, człowiek z historią KGB.  
 
 ```
 Молодые русские понимали угрозу, они не хотят военной мобилизации и идут воевать. Они подожгли военкоматы и регистрационные пункты, чтобы остановить весенний призыв. В Московской области, в Воронеже, в Свердловской области, в Ивановской области и в Мордовии: https://t.me/stories_media/1108
-Жаль, что только сейчас, спустя 70 дней. А вы думали, что вы можете сделать? Вы проверяете интернет на предмет правды? Смотрите телеграмму https://t.me/kharkiv_trybunal_bot тут международный трибунал представляет ваши действия в Украине. Вы и дальше будете смотреть пропаганду по телевизору, что в Мариуполе стоят пластиковые памятники, или что дети прыгают вверх-вниз в детских садах? Какой родитель отпустит ребенка в детский сад, когда идет война?
+Жаль, что только сейчас, спустя 70 дней. А вы думали, что вы можете сделать? Вы проверяете интернет на предмет правды? Смотрите телеграмму https://t.me/kharkiv_trybunal_bot тут международный трибунал представляет ваши действия в Украине. Вы и дальше будете смотреть пропаганду по телевизору, что в Мариуполе стоят пластиковые памятники, или что дети прыгают вверх-вниз в детских садах? Какой родитель отпустит ребенка в детский сад, когда идет война? Или вы шьете форму для парада для военнопленных на Украине, чтобы показать вам кино, как они примкнули к России. Каким вероломным надо быть, кто бы это выдумал. Просто хутин, человек с КГБ-прошлым.
 ```
 
 [Podpalenie - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/SobolLubov.mp4?raw=true)
