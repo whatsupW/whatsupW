@@ -1,42 +1,35 @@
 # 05 maj 2022 Wybuchy - Explosions
 
+## Is something on fire? Something explodes?
+Coś się u Was pali? Coś wybucha?
+
 [Mapa - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true)
 
 ![wybuchy](https://user-images.githubusercontent.com/101053692/167015802-96cbad02-2e96-4de4-86dc-7fb3100a8131.jpeg)
 
+## 20/04/2022 Bielgorad, ammunition depot.
 20.04.2022 Bielgorad, skład amunicji.
 
 [Bielgorad, skład amunicji- link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Bielgorad.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167015849-72ec5add-0425-4b50-8e6f-96315d10e734.mp4
 
-## Is something on fire? Something explodes?
-In March, five recruitment centers in Moscow were set on fire in the Voronezh, Sverdlovsk and Ivanovo districts
-April 21 The Dmitrievsky Chemical Plant in Kineszma, east of Moscow, almost completely burned down.
-April 21 A major fire broke out at the military research institute of the Russian Ministry of Defense in Tver, killing 17 and injuring 27.
-
-Coś się u Was pali? Coś wybucha?
-
+## In March, five recruitment centers in Moscow were set on fire in the Voronezh, Sverdlovsk and Ivanovo districts. April 21 The Dmitrievsky Chemical Plant in Kineszma, east of Moscow, almost completely burned down. April 21 A major fire broke out at the military research institute of the Russian Ministry of Defense in Tver, killing 17 and injuring 27.
 W marcu pięć centrów rekrutacyjnych w Moskwie zostało podpalonych w obwodach Woroneża, Swierdłowska i Iwanowa
-
-21 kwietnia Niemal doszczętnie spłonął Dmitriewski Zakład Chemiczny w Kineszmie na wschód od Moskwy.
-
+21 kwietnia Niemal doszczętnie spłonął Dmitriewski Zakład Chemiczny w Kineszmie na wschód od Moskwy. 
 21 kwietnia W wojskowym instytucie badawczym ministerstwa obrony Rosji w Twerze wybuchł duży pożar, w wyniku którego zginęło 17 osób, a 27 zostało rannych.
 
 [Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
 
+## On April 21, the explosion of the Dmitrievsky chemical plant in the city of Kineshma, 950 km from Ukraine. April 22 As many as five Russian military offices were set on fire in Ivanovo. April 22: Film of the Korolev rocket and Space Corporation Energia in Russia. April 23: The Kuban hydroelectric complex collapses Massive fires broke out on April 24-25 in Bryansk, Russia. Burned incl. crude oil warehouse, Transneft-Druzhba bases, Rosneft production plant, At 2 am, April 25, Bryansk Oblast, a fire at Bryansk, Fokinsk district, Moscow Street. A fuel depot was on fire.
+
 21 kwietnia wybuch fabryki chemicznej Dmitrievsky w mieście Kineshma, 950 km od Ukrainy
-
 22 kwietnia Aż pięć rosyjskich urzędów wojskowych zostało podpalonych w Iwanowie 
-
 22 kwietnia: Sfilmowanie rakiety Korolev i Space Corporation Energia w Rosji
-
 23 kwietnia:  Zawala się kompleks hydroelektryczny, Kuban 
-
 Z 24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonął m.in. magazyn ropy naftowej, bazy Transnieft-Drużba, zakład produkcyjny Rosnieft, 
-
 O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica Fokinski, ulica Moskiewska. Płonął skład paliw.
 
 [ 26 kwiecień Briańsk - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/26mBransk.png?raw=true)
@@ -47,20 +40,22 @@ O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica
 
 https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
 
+## On April 25, a fire broke out at the Ussurujsk air base, at the 323th Aviation Repair Plant on the Vozdvizhenka base.
 25 kwietnia wybuchł pożar na bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym na bazie Wozdwiżenka.
 
 [Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
 
+## On April 28, a fire was filmed at a construction site in Minsk, Belarus. April 28 Construction of a medical center is burning in Moscow. Town residents inform about it. Also, 7 cars burned down on one of the streets in the capital this night.
 28 kwietnia sfilmowano pożar na placu budowy w Mińsku na Białorusi
-
 28 kwietnia W Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów.
 
 [Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165710684-f648a092-68e5-4124-b3bd-f6ec18159368.mp4
 
+## April 28 7 cars with the letter Z burn in Moscow
 28 kwiecień 7 aut z literą Z płonie w Moskwie
 
 [Moskwa auta Z płoną- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa7z.mp4?raw=true)
