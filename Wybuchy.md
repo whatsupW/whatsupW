@@ -1,4 +1,4 @@
-# 05 maj 2022 Wybuchy
+# 05 maj 2022 Wybuchy - Explosions
 
 [Mapa - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true)
 
@@ -9,6 +9,13 @@
 [Bielgorad, skład amunicji- link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Bielgorad.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167015849-72ec5add-0425-4b50-8e6f-96315d10e734.mp4
+
+## Is something on fire? Something explodes?
+In March, five recruitment centers in Moscow were set on fire in the Voronezh, Sverdlovsk and Ivanovo districts
+April 21 The Dmitrievsky Chemical Plant in Kineszma, east of Moscow, almost completely burned down.
+April 21 A major fire broke out at the military research institute of the Russian Ministry of Defense in Tver, killing 17 and injuring 27.
+
+Coś się u Was pali? Coś wybucha?
 
 W marcu pięć centrów rekrutacyjnych w Moskwie zostało podpalonych w obwodach Woroneża, Swierdłowska i Iwanowa
 
