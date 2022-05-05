@@ -126,17 +126,15 @@ https://user-images.githubusercontent.com/101053692/167032990-6ac30791-57cc-4b5b
 
 ![Rosyjskie_napisy](https://user-images.githubusercontent.com/101053692/167033164-a39fdf80-d0ad-425c-a7cf-5d5716329b4c.jpg)
 
-https://github.com/whatsupW/whatsupW/blob/main/img/6/Plac_zabaw1.mp4?raw=true
-
-
+[Plac zaabaw1 - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Plac_zabaw1.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167033540-8f5f3d93-bbf1-4206-87d9-d30505c9fd8e.mp4
 
-
+[Plac zaabaw2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Plac_zabaw2.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167033553-9b5ce93f-d3c3-4db5-a0f3-d0eeae97d3a6.mp4
 
-
+[Plac zaabaw3 - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Plac_zabaw3.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167033556-32e0eaa5-0406-4aa8-b5ad-0d9570ccd3c8.mp4
 
