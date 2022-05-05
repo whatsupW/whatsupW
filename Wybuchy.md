@@ -1,9 +1,10 @@
-# Wybuchy
+# 05 maj 2022 Wybuchy
 
-Tak, musimy koordynować wiec, wtedy w tym dniu zostaną przydzielone siły bezpieczeństwa, żeby nie było zamieszek, scena, z której można wyrazić swój punkt widzenia. Czy ktoś wie? Jak mogą. Wiem spontanicznie, ale
-
+https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true
 
 20.04.2022 Bolgorad, skład amunicji.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/6/Bielgorad.mp4
 
 W marcu pięć centrów rekrutacyjnych w Moskwie zostało podpalonych w obwodach Woroneża, Swierdłowska i Iwanowa
 
@@ -22,6 +23,8 @@ W marcu pięć centrów rekrutacyjnych w Moskwie zostało podpalonych w obwodach
 Z 24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonął m.in. magazyn ropy naftowej, bazy Transnieft-Drużba, zakład produkcyjny Rosnieft, 
 
 O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica Fokinski, ulica Moskiewska. Płonął skład paliw.
+
+https://github.com/whatsupW/whatsupW/blob/main/img/6/26mBransk.png?raw=true
 
 25 kwietnia wybuchł pożar na bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym na bazie Wozdwiżenka.
 
@@ -43,7 +46,11 @@ O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica
 
 3 maja: Pożar w czteropiętrowym prokremlowskim magazynie wydawniczym w bogorodskiej dzielnicy obwodu moskiewskiego
 
+https://github.com/whatsupW/whatsupW/blob/main/img/6/3majMoskwa.mp4
+
 4 maja Duży pożar w strefie przemysłowej Dzierżyńskiego w regionie Niżny Nowogród
+
+https://github.com/whatsupW/whatsupW/blob/main/img/6/4majDzierzynsk.mp4
 
 Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
 
