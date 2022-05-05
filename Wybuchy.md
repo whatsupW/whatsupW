@@ -2,6 +2,7 @@
 
 [Mapa - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true)
 
+https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg
 
 20.04.2022 Bielgorad, skład amunicji.
 
