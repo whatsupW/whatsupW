@@ -1,5 +1,13 @@
 # 05 maj 2022 Wybuchy
 
+"Coś Wam mówią w telewizji o pożarach? Podpaleniach? Czy też nic, jak o wojnie? Zobacz ile się dzieje już u Was. Może mieszkasz gdzieś w okolicy? Sam coś widziałeś?"
+
+```
+Вам по телевизору что-то рассказывают про пожары? Поджоги? Или ничего похожего на войну? Видите, сколько уже с вами происходит.
+Может быть, вы живете где-то в этом районе? Вы сами что-нибудь видели?
+```
+Możesz wysłać przykładowy film lub zdjęcie. Klikając na niebieski link ściągnie ci się na telefon.
+
 [Mapa - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true)
 
 ![wybuchy](https://user-images.githubusercontent.com/101053692/167015802-96cbad02-2e96-4de4-86dc-7fb3100a8131.jpeg)
