@@ -110,6 +110,13 @@ Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Spr
 
 https://user-images.githubusercontent.com/101053692/167023544-86205218-4f83-4a20-9310-80cd7bd4c0ad.mp4
 
+[Podpalenie 2 - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Podpalenie2.mp4?raw=true)
 
+https://user-images.githubusercontent.com/101053692/167032990-6ac30791-57cc-4b5b-873b-ff8fe7081190.mp4
+
+
+
+
+https://github.com/whatsupW/whatsupW/blob/main/img/6/Plac_zabaw1.mp4?raw=true
 
 
