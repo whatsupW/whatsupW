@@ -114,9 +114,30 @@ https://user-images.githubusercontent.com/101053692/167023544-86205218-4f83-4a20
 
 https://user-images.githubusercontent.com/101053692/167032990-6ac30791-57cc-4b5b-873b-ff8fe7081190.mp4
 
+[PlastikowaBabcia](https://github.com/whatsupW/whatsupW/blob/main/img/6/PlastikowaBabcia.jpg)
 
+![PlastikowaBabcia](https://user-images.githubusercontent.com/101053692/167033119-48f0bdcd-e211-4450-912a-2346f5da9da0.jpg)
 
+[Plastikowbabcia1](https://github.com/whatsupW/whatsupW/blob/main/img/6/Plastikowababcia1.jpg)
+
+![Plastikowbabcia1](https://user-images.githubusercontent.com/101053692/167033143-51807b99-a2fb-413b-8bc7-ebdebe52af34.jpg)
+
+[Rosyjskie_napisy](https://github.com/whatsupW/whatsupW/blob/main/img/6/Rosyjskie_napisy.jpg)
+
+![Rosyjskie_napisy](https://user-images.githubusercontent.com/101053692/167033164-a39fdf80-d0ad-425c-a7cf-5d5716329b4c.jpg)
 
 https://github.com/whatsupW/whatsupW/blob/main/img/6/Plac_zabaw1.mp4?raw=true
+
+
+
+https://user-images.githubusercontent.com/101053692/167033540-8f5f3d93-bbf1-4206-87d9-d30505c9fd8e.mp4
+
+
+
+https://user-images.githubusercontent.com/101053692/167033553-9b5ce93f-d3c3-4db5-a0f3-d0eeae97d3a6.mp4
+
+
+
+https://user-images.githubusercontent.com/101053692/167033556-32e0eaa5-0406-4aa8-b5ad-0d9570ccd3c8.mp4
 
 
