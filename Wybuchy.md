@@ -16,6 +16,10 @@ W marcu pięć centrów rekrutacyjnych w Moskwie zostało podpalonych w obwodach
 
 21 kwietnia W wojskowym instytucie badawczym ministerstwa obrony Rosji w Twerze wybuchł duży pożar, w wyniku którego zginęło 17 osób, a 27 zostało rannych.
 
+[Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
+
 21 kwietnia wybuch fabryki chemicznej Dmitrievsky w mieście Kineshma, 950 km od Ukrainy
 
 22 kwietnia Aż pięć rosyjskich urzędów wojskowych zostało podpalonych w Iwanowie 
@@ -32,13 +36,29 @@ O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica
 
 <img width="417" alt="26mBransk" src="https://user-images.githubusercontent.com/101053692/167015916-b12a570b-b7b9-4c02-9ed5-620869cca6ff.png">
 
+[Briańsk skład paliw - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Bryansk.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
+
 25 kwietnia wybuchł pożar na bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym na bazie Wozdwiżenka.
+
+[Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
 
 28 kwietnia sfilmowano pożar na placu budowy w Mińsku na Białorusi
 
 28 kwietnia W Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów.
 
+[Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165710684-f648a092-68e5-4124-b3bd-f6ec18159368.mp4
+
 28 kwiecień 7 aut z literą Z płonie w Moskwie
+
+[Moskwa auta Z płoną- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa7z.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165832894-7c9a3ea4-98ff-462c-bc3b-c6bcdfe1be91.mp4
 
 29 kwietnia Wiele budynków płonie w Rosji po pożarze w centrum handlowym w Ishim 
 
