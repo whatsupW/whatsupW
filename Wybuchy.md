@@ -100,7 +100,7 @@ Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie??
 В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
 25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
 28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
-28 kwiecień 7 aut z literą Z płonie w Moskwie
+28 апреля в Москве сгорели 7 автомобилей на букву Z
 Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
 ```
 ## Young Russians understood the threat, they do not want military mobilization and go to fight. They set fire to recruitment and registration offices to stop the spring draft. In the Moscow region, in Voronezh, in the Sverdlovsk region, in the Ivanów region and in Mordovia: https://t.me/stories_media/1108 It's a pity it's only now after 70 days. And you thought what you can do? Are you checking the internet for the truth? See telegram https://t.me/kharkiv_trybunal_bot here the international tribunal presents your actions in Ukraine. Will you continue to watch the propaganda on TV that there are plastic monuments in Mariupol, or that children are jumping around happily in kindergartens? What parent would let a child go to kindergarten when the war is going on? Or you sew uniforms for a parade for prisoners of war in Ukraine to show you a movie of how they joined Russia. How one must be perfidious, who would make it up. Just a hutin, a man with a KGB history.
