@@ -3,7 +3,7 @@
 ## Is something on fire? Something explodes?
 Coś się u Was pali? Coś wybucha?
 
-## It will be interesting to this day, Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
+## Interestingly. What will explode tonight. Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
 Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
 
 Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie?? 
