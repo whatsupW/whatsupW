@@ -98,12 +98,12 @@ Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie??
 28 kwiecień 7 aut z literą Z płonie w Moskwie
 Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
 ```
-Młodzi rosjanie zrozumieli zagrożenie i nie chcą mobilizacji wojskowej i iść walczyć. Podpalają urzędy werbunkowe i meldunkowe, aby powstrzymać wiosenny pobór. W obwodzie moskiewskim, w Woroneżu, w obwodzie swierdłowskim, obwodzie iwanowskim i Mordowii: https://t.me/stories_media/1108 
-Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Czy będziesz dalej oglądał propagandę w telewizji, że są pomniki z plastiku w Mariupolu, albo że dzieci wesoło podskakują w przedszkolach? Jaki rodzic wypuścił by dziecko do przedszkola jak trwa wojna?
+Młodzi rosjanie zrozumieli zagrożenie, nie chcą mobilizacji wojskowej i iść walczyć. Podpalają urzędy werbunkowe i meldunkowe, aby powstrzymać wiosenny pobór. W obwodzie moskiewskim, w Woroneżu, w obwodzie swierdłowskim, obwodzie iwanowskim i Mordowii: https://t.me/stories_media/1108 
+Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Sprawdzasz internet za prawdą? Zobacz telegram https://t.me/kharkiv_trybunal_bot tu międzynarodowy trybunał przedstawia Wasze działania na Ukrainie. Czy będziesz dalej oglądał propagandę w telewizji, że są pomniki z plastiku w Mariupolu, albo że dzieci wesoło podskakują w przedszkolach? Jaki rodzic wypuścił by dziecko do przedszkola jak trwa wojna? Albo wasi szyją mundury na paradę dla jeńców w Ukrainie by pokazać Wam film jak się przyłączyli do Rosji. Jak trzeba być perfidnym, kto by to wymyślił. Tylko hutin, człowiek z historią KGB.  
 
 ```
-Молодые русские понимали угрозу и не хотели мобилизовывать военных и идти воевать. Они подожгли военкоматы и регистрационные пункты, чтобы остановить весенний призыв. В Московской области, в Воронеже, в Свердловской области, в Ивановской области и в Мордовии: https://t.me/stories_media/1108
-Жаль, что только сейчас, спустя 70 дней. А вы думали, что вы можете сделать? Вы и дальше будете смотреть пропаганду по телевизору, что в Мариуполе стоят пластиковые памятники, или что дети прыгают вверх-вниз в детских садах? Какой родитель отпустит ребенка в детский сад, когда идет война?
+Молодые русские понимали угрозу, они не хотят военной мобилизации и идут воевать. Они подожгли военкоматы и регистрационные пункты, чтобы остановить весенний призыв. В Московской области, в Воронеже, в Свердловской области, в Ивановской области и в Мордовии: https://t.me/stories_media/1108
+Жаль, что только сейчас, спустя 70 дней. А вы думали, что вы можете сделать? Вы проверяете интернет на предмет правды? Смотрите телеграмму https://t.me/kharkiv_trybunal_bot тут международный трибунал представляет ваши действия в Украине. Вы и дальше будете смотреть пропаганду по телевизору, что в Мариуполе стоят пластиковые памятники, или что дети прыгают вверх-вниз в детских садах? Какой родитель отпустит ребенка в детский сад, когда идет война?
 ```
 
 [Podpalenie - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/SobolLubov.mp4?raw=true)
