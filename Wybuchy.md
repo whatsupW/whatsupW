@@ -3,6 +3,25 @@
 ## Is something on fire? Something explodes?
 Coś się u Was pali? Coś wybucha?
 
+## It will be interesting to this day, Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
+Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
+
+Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie?? 
+
+```
+Взрывы и пожары?
+В марте в Москве было подожжено пять призывных пунктов в Воронежской, Свердловской и Ивановской областях. 
+20.04.2022 Белгород, склад боеприпасов
+21.04.2022 Почти полностью сгорел Дмитриевский химический завод в Кинешме на восток от Москвы
+21.04.2022 В военном институте испытаний министерства обороны России в Твере вспыхнул пожар в результате которого погибло 17 человек, а 27 получили ранения.
+Ночью с 24 на 25 апреля в российском Брянске вспыхнули масштабные пожары. Горела нефтебаза Транснефть-Дружба.
+В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
+25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
+28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
+28 апреля в Москве сгорели 7 автомобилей на букву Z
+Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
+```
+
 [Mapa - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true)
 
 ![wybuchy](https://user-images.githubusercontent.com/101053692/167015802-96cbad02-2e96-4de4-86dc-7fb3100a8131.jpeg)
@@ -86,24 +105,7 @@ https://user-images.githubusercontent.com/101053692/167016004-5246198a-9d11-4114
 
 https://user-images.githubusercontent.com/101053692/167016032-c9344ec7-6d0a-4bc0-8106-ddfbe0b2ee7c.mp4
 
-## It will be interesting to this day, Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
-Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
 
-Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie?? 
-
-```
-Взрывы и пожары?
-В марте в Москве было подожжено пять призывных пунктов в Воронежской, Свердловской и Ивановской областях. 
-20.04.2022 Белгород, склад боеприпасов
-21.04.2022 Почти полностью сгорел Дмитриевский химический завод в Кинешме на восток от Москвы
-21.04.2022 В военном институте испытаний министерства обороны России в Твере вспыхнул пожар в результате которого погибло 17 человек, а 27 получили ранения.
-Ночью с 24 на 25 апреля в российском Брянске вспыхнули масштабные пожары. Горела нефтебаза Транснефть-Дружба.
-В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
-25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
-28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
-28 апреля в Москве сгорели 7 автомобилей на букву Z
-Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
-```
 ## Young Russians understood the threat, they do not want military mobilization and go to fight. They set fire to recruitment and registration offices to stop the spring draft. In the Moscow region, in Voronezh, in the Sverdlovsk region, in the Ivanów region and in Mordovia: https://t.me/stories_media/1108 It's a pity it's only now after 70 days. And you thought what you can do? Are you checking the internet for the truth? See telegram https://t.me/kharkiv_trybunal_bot here the international tribunal presents your actions in Ukraine. Will you continue to watch the propaganda on TV that there are plastic monuments in Mariupol, or that children are jumping around happily in kindergartens? What parent would let a child go to kindergarten when the war is going on? Or you sew uniforms for a parade for prisoners of war in Ukraine to show you a movie of how they joined Russia. How one must be perfidious, who would make it up. Just a hutin, a man with a KGB history.
 Młodzi rosjanie zrozumieli zagrożenie, nie chcą mobilizacji wojskowej i iść walczyć. Podpalają urzędy werbunkowe i meldunkowe, aby powstrzymać wiosenny pobór. W obwodzie moskiewskim, w Woroneżu, w obwodzie swierdłowskim, obwodzie iwanowskim i Mordowii: https://t.me/stories_media/1108 
 Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Sprawdzasz internet za prawdą? Zobacz telegram https://t.me/kharkiv_trybunal_bot tu międzynarodowy trybunał przedstawia Wasze działania na Ukrainie. Czy będziesz dalej oglądał propagandę w telewizji, że są pomniki z plastiku w Mariupolu, albo że dzieci wesoło podskakują w przedszkolach? Jaki rodzic wypuścił by dziecko do przedszkola jak trwa wojna? Albo wasi szyją mundury na paradę dla jeńców w Ukrainie by pokazać Wam film jak się przyłączyli do Rosji. Jak trzeba być perfidnym, kto by to wymyślił. Tylko hutin, człowiek z historią KGB.  
