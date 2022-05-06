@@ -127,7 +127,7 @@ https://user-images.githubusercontent.com/101053692/167032990-6ac30791-57cc-4b5b
 
 ![PlastikowaBabcia](https://user-images.githubusercontent.com/101053692/167033119-48f0bdcd-e211-4450-912a-2346f5da9da0.jpg)
 
-[Plastikowbabcia1](https://github.com/whatsupW/whatsupW/blob/main/img/6/Plastikowababcia1.jpg?raw=true)
+[Plastikowbabcia1](https://github.com/whatsupW/whatsupW/blob/main/img/6/Plastikowbabcia1.jpg?raw=true)
 
 ![Plastikowbabcia1](https://user-images.githubusercontent.com/101053692/167033143-51807b99-a2fb-413b-8bc7-ebdebe52af34.jpg)
 
