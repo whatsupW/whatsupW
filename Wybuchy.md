@@ -1,4 +1,5 @@
-# 05 maj 2022 Wybuchy - Explosions
+# May 5, 2022 Explosions
+05 maj 2022 Wybuchy
 
 ## Is something on fire? Something explodes? Interestingly. What will explode tonight. Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
 Coś się u Was pali? Coś wybucha?
