@@ -1,3 +1,8 @@
+# May 5, 2022 Explosions
+05 maj 2022 Wybuchy
+
+[May 5, 2022 Explosions 05 maj 2022 Wybuchy - Link](https://github.com/whatsupW/whatsupW/blob/main/Wybuchy.md)
+
 # May 9, 2022
 
 [May 9, 2022 - English version - Link](https://github.com/whatsupW/whatsupW/blob/main/May_9_2022.md)
