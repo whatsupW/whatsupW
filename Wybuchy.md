@@ -2,11 +2,13 @@
 
 ## Is something on fire? Something explodes? Interestingly. What will explode tonight. Will you finally understand that it also applies to you? Why aren't they extinguishing Siberia ?? Because the army is at war ??
 Coś się u Was pali? Coś wybucha?
-Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
+Ciekawe co dziś będzie. Czy wreszcie pojmniecie, że to Was też dotyczy?
 Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie?? 
 
 ```
-Взрывы и пожары?
+Что-то горит? Что-то взрывается?
+Интересно, что будет сегодня. Вы наконец поймете, что это относится и к вам?
+Почему Сибирь не тушат?? Потому что армия воюет??
 В марте в Москве было подожжено пять призывных пунктов в Воронежской, Свердловской и Ивановской областях. 
 20.04.2022 Белгород, склад боеприпасов
 21.04.2022 Почти полностью сгорел Дмитриевский химический завод в Кинешме на восток от Москвы
