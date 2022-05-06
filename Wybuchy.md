@@ -22,6 +22,16 @@ Czemu nie gaszą Syberii?? Bo wojsko jest na wojnie??
 Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
 ```
 
+
+
+## Young Russians understood the threat, they do not want military mobilization and go to fight. They set fire to recruitment and registration offices to stop the spring draft. In the Moscow region, in Voronezh, in the Sverdlovsk region, in the Ivanów region and in Mordovia: https://t.me/stories_media/1108 It's a pity it's only now after 70 days. And you thought what you can do? Are you checking the internet for the truth? See telegram https://t.me/kharkiv_trybunal_bot here the international tribunal presents your actions in Ukraine. Will you continue to watch the propaganda on TV that there are plastic monuments in Mariupol, or that children are jumping around happily in kindergartens? What parent would let a child go to kindergarten when the war is going on? Or you sew uniforms for a parade for prisoners of war in Ukraine to show you a movie of how they joined Russia. How one must be perfidious, who would make it up. Just a hutin, a man with a KGB history.
+Młodzi rosjanie zrozumieli zagrożenie, nie chcą mobilizacji wojskowej i iść walczyć. Podpalają urzędy werbunkowe i meldunkowe, aby powstrzymać wiosenny pobór. W obwodzie moskiewskim, w Woroneżu, w obwodzie swierdłowskim, obwodzie iwanowskim i Mordowii: https://t.me/stories_media/1108 
+Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Sprawdzasz internet za prawdą? Zobacz telegram https://t.me/kharkiv_trybunal_bot tu międzynarodowy trybunał przedstawia Wasze działania na Ukrainie. Czy będziesz dalej oglądał propagandę w telewizji, że są pomniki z plastiku w Mariupolu, albo że dzieci wesoło podskakują w przedszkolach? Jaki rodzic wypuścił by dziecko do przedszkola jak trwa wojna? Albo wasi szyją mundury na paradę dla jeńców w Ukrainie by pokazać Wam film jak się przyłączyli do Rosji. Jak trzeba być perfidnym, kto by to wymyślił. Tylko hutin, człowiek z historią KGB.  
+
+```
+Молодые русские понимали угрозу, они не хотят военной мобилизации и идут воевать. Они подожгли военкоматы и регистрационные пункты, чтобы остановить весенний призыв. В Московской области, в Воронеже, в Свердловской области, в Ивановской области и в Мордовии: https://t.me/stories_media/1108
+Жаль, что только сейчас, спустя 70 дней. А вы думали, что вы можете сделать? Вы проверяете интернет на предмет правды? Смотрите телеграмму https://t.me/kharkiv_trybunal_bot тут международный трибунал представляет ваши действия в Украине. Вы и дальше будете смотреть пропаганду по телевизору, что в Мариуполе стоят пластиковые памятники, или что дети прыгают вверх-вниз в детских садах? Какой родитель отпустит ребенка в детский сад, когда идет война? Или вы шьете форму для парада для военнопленных на Украине, чтобы показать вам кино, как они примкнули к России. Каким вероломным надо быть, кто бы это выдумал. Просто хутин, человек с КГБ-прошлым.
+```
 [Mapa - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/wybuchy.jpeg?raw=true)
 
 ![wybuchy](https://user-images.githubusercontent.com/101053692/167015802-96cbad02-2e96-4de4-86dc-7fb3100a8131.jpeg)
@@ -105,15 +115,7 @@ https://user-images.githubusercontent.com/101053692/167016004-5246198a-9d11-4114
 
 https://user-images.githubusercontent.com/101053692/167016032-c9344ec7-6d0a-4bc0-8106-ddfbe0b2ee7c.mp4
 
-
-## Young Russians understood the threat, they do not want military mobilization and go to fight. They set fire to recruitment and registration offices to stop the spring draft. In the Moscow region, in Voronezh, in the Sverdlovsk region, in the Ivanów region and in Mordovia: https://t.me/stories_media/1108 It's a pity it's only now after 70 days. And you thought what you can do? Are you checking the internet for the truth? See telegram https://t.me/kharkiv_trybunal_bot here the international tribunal presents your actions in Ukraine. Will you continue to watch the propaganda on TV that there are plastic monuments in Mariupol, or that children are jumping around happily in kindergartens? What parent would let a child go to kindergarten when the war is going on? Or you sew uniforms for a parade for prisoners of war in Ukraine to show you a movie of how they joined Russia. How one must be perfidious, who would make it up. Just a hutin, a man with a KGB history.
-Młodzi rosjanie zrozumieli zagrożenie, nie chcą mobilizacji wojskowej i iść walczyć. Podpalają urzędy werbunkowe i meldunkowe, aby powstrzymać wiosenny pobór. W obwodzie moskiewskim, w Woroneżu, w obwodzie swierdłowskim, obwodzie iwanowskim i Mordowii: https://t.me/stories_media/1108 
-Szkoda, że dopiero teraz po 70 dniach. A ty myślałeś co możesz zrobić? Sprawdzasz internet za prawdą? Zobacz telegram https://t.me/kharkiv_trybunal_bot tu międzynarodowy trybunał przedstawia Wasze działania na Ukrainie. Czy będziesz dalej oglądał propagandę w telewizji, że są pomniki z plastiku w Mariupolu, albo że dzieci wesoło podskakują w przedszkolach? Jaki rodzic wypuścił by dziecko do przedszkola jak trwa wojna? Albo wasi szyją mundury na paradę dla jeńców w Ukrainie by pokazać Wam film jak się przyłączyli do Rosji. Jak trzeba być perfidnym, kto by to wymyślił. Tylko hutin, człowiek z historią KGB.  
-
-```
-Молодые русские понимали угрозу, они не хотят военной мобилизации и идут воевать. Они подожгли военкоматы и регистрационные пункты, чтобы остановить весенний призыв. В Московской области, в Воронеже, в Свердловской области, в Ивановской области и в Мордовии: https://t.me/stories_media/1108
-Жаль, что только сейчас, спустя 70 дней. А вы думали, что вы можете сделать? Вы проверяете интернет на предмет правды? Смотрите телеграмму https://t.me/kharkiv_trybunal_bot тут международный трибунал представляет ваши действия в Украине. Вы и дальше будете смотреть пропаганду по телевизору, что в Мариуполе стоят пластиковые памятники, или что дети прыгают вверх-вниз в детских садах? Какой родитель отпустит ребенка в детский сад, когда идет война? Или вы шьете форму для парада для военнопленных на Украине, чтобы показать вам кино, как они примкнули к России. Каким вероломным надо быть, кто бы это выдумал. Просто хутин, человек с КГБ-прошлым.
-```
+## Podpalenia
 
 [Podpalenie - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/SobolLubov.mp4?raw=true)
 
