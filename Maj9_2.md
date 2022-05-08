@@ -31,6 +31,15 @@ https://user-images.githubusercontent.com/101053692/167289988-652b8053-4055-4f1e
 
 https://user-images.githubusercontent.com/101053692/167290005-59b51919-9f0d-468e-8555-322492591119.mp4
 
+Forest fires have been reported in 77 out of 83 regions in #Russia. The worst fires are in Siberia, they destroy entire villages. Putin does not care about this devastation of the house, continuing the barbaric war with Ukraine.
+
+```
+В 77 из 83 регионов России горят леса. Самые серьёзные  пожары в Сибири, которые уничтожают целые села. Путина это вообще не интересует, так как он сосредоточен только на варварской войне в Украине.
+```
+
+[Pozary](https://github.com/whatsupW/whatsupW/blob/main/img/7/Pozary.jpg?raw=true)
+
+![Pozary](https://user-images.githubusercontent.com/101053692/167291951-3cdb0547-be33-42a1-a9a0-5b785f150d76.jpg)
 
 ## Powrót do strony głównej
 
