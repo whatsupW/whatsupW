@@ -1,4 +1,6 @@
-# 9 maj 2022 rok
+# 9 maj 2022 rok - druga część
+
+[Link do 9 maj - 1 część](https://github.com/whatsupW/whatsupW/blob/main/9_maj_2022.md)
 
 Święto zwycięstwa – Święto mordowania od 74 dni suwerennego kraju.
 Codziennie bombardujecie całą Ukrainę.
@@ -21,12 +23,9 @@ https://user-images.githubusercontent.com/101053692/167289996-3e5cda5f-8198-4065
 
 https://user-images.githubusercontent.com/101053692/167289988-652b8053-4055-4f1e-972e-676f8a2b8b8b.mp4
 
-[Wolotantariuszka z Mariupola - Stop Russia Now not tomorrow](https://github.com/whatsupW/whatsupW/blob/main/img/7/Stop_RussiaNOW_646x270_1522841162083491840.mp4?raw=true)
+[Wolotantariuszka z Mariupola - Stop Russia Now, not tomorrow](https://github.com/whatsupW/whatsupW/blob/main/img/7/Stop_RussiaNOW_646x270_1522841162083491840.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167290005-59b51919-9f0d-468e-8555-322492591119.mp4
-
-
-
 
 
 ## Powrót do strony głównej
