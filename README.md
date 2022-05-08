@@ -1,6 +1,6 @@
 # May 9, 2022, part 2
 
-[May 9, 2022 - English version - Link](https://github.com/whatsupW/whatsupW/blob/main/9maj.md)
+[May 9, 2022 - the second part- English version - Link](https://github.com/whatsupW/whatsupW/blob/main/Maj9_2.md)
 
 [9 maj 2022- wersj polska - Link](https://github.com/whatsupW/whatsupW/blob/main/9maj.md)
 
