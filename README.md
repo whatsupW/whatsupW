@@ -1,3 +1,9 @@
+# "The words" never again "sound painful and brutal today"
+“Słowa „Nigdy więcej” brzmią dziś boleśnie i brutalnie”
+
+https://user-images.githubusercontent.com/101053692/167297998-992383be-047e-417c-afeb-1ef4ca8279bd.mp4
+
+
 # May 9, 2022, part 2
 
 [May 9, 2022 - the second part- English version - Link](https://github.com/whatsupW/whatsupW/blob/main/Maj9_2.md)
