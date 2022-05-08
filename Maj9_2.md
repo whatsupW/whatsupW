@@ -4,11 +4,11 @@
 
 Victory Day - A celebration of the murder of a sovereign country for 74 days.
 You bomb all of Ukraine every day.
-The propaganda wants to show you that it is quiet there. Maybe search on the internet - see here
+The propaganda wants to show you that it is quiet there. Maybe search on the internet - see here https://github.com/whatsupW/-/blob/main/Spec.md
 I don't know if the worship of genocide is lofty.
 
 ```
-День Победы - Празднование убийства суверенной страны в течение 74 дней. Вы бомбите всю Украину каждый день. Пропаганда хочет показать, что там тихо. Может быть, поищи в интернете - см. здесь. Не знаю, достоин ли культ геноцида.
+День Победы - Празднование убийства суверенной страны в течение 74 дней. Вы бомбите всю Украину каждый день. Пропаганда хочет показать, что там тихо. Может быть, поищи в интернете - см. здесь. https://github.com/whatsupW/-/blob/main/Spec.md Не знаю, достоин ли культ геноцида.
 ```
 
 [On May 4 alarm sirens - map link](https://github.com/whatsupW/whatsupW/blob/main/img/7/maj4bombardowanie.jpg?raw=true)
