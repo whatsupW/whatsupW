@@ -34,7 +34,6 @@ https://user-images.githubusercontent.com/101053692/167290005-59b51919-9f0d-468e
 W 77 z 83 regionów #Rosji zgłoszono pożary lasów. Najgorsze pożary są na Syberii, niszczą całe wioski. Putin nie przejmuje się tym dewastacją domu, kontynuując barbarzyńską wojnę z Ukrainą.
 
 ```
-Irina Maslennikova
 В 77 из 83 регионов России горят леса. Самые серьёзные  пожары в Сибири, которые уничтожают целые села. Путина это вообще не интересует, так как он сосредоточен только на варварской войне в Украине.
 ```
 
