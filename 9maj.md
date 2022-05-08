@@ -19,7 +19,7 @@ Nie wiem czy czczenie ludobójstwa jest szczytne.
 
 https://user-images.githubusercontent.com/101053692/167289964-00821bea-09e2-4641-b010-253c00e09167.mp4
 
-[Przechwycona rozmowa ruskich żołnierzy zginęło więcej niż przez 4 lata w Czeczeni](https://github.com/whatsupW/whatsupW/blob/main/img/7/Zginelo_wiecej.mp4?raw=true)
+[Przechwycona rozmowa - ruskich żołnierzy zginęło więcej niż przez 4 lata w Czeczeni](https://github.com/whatsupW/whatsupW/blob/main/img/7/Zginelo_wiecej.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/167289996-3e5cda5f-8198-4065-90d2-3c61c14fd7d9.mp4
 
