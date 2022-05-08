@@ -4,11 +4,11 @@
 
 Święto zwycięstwa – Święto mordowania od 74 dni suwerennego kraju.
 Codziennie bombardujecie całą Ukrainę.
-Propaganda chce wam pokazać że tam jest spokojnie. Może poszukaj w internecie – zobacz tu
+Propaganda chce wam pokazać że tam jest spokojnie. Może zajrzyj do internetu – zobacz tu
 Nie wiem czy czczenie ludobójstwa jest szczytne.
 
 ```
-День Победы - Празднование убийства суверенной страны в течение 74 дней. Вы бомбите всю Украину каждый день. Пропаганда хочет показать, что там тихо. Может быть, вы можете поискать в Интернете - см. здесь. Не знаю, достоин ли культ геноцида.
+День Победы - Празднование убийства суверенной страны в течение 74 дней. Вы бомбите всю Украину каждый день. Пропаганда хочет показать, что там тихо. Может быть, вы Может поищи в интернете - см. здесь. Не знаю, достоин ли культ геноцида.
 ```
 
 [4 maj syreny alarmowe - link mapa](https://github.com/whatsupW/whatsupW/blob/main/img/7/maj4bombardowanie.jpg?raw=true)
