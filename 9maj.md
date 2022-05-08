@@ -5,7 +5,7 @@ Codziennie bombardujecie całą Ukrainę.
 Propaganda chce wam pokazać że tam jest spokojnie. Może poszukaj w internecie – zobacz tu
 Nie wiem czy czczenie ludobójstwa jest szczytne.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/7/maj4bombardowanie.jpg
+[4 maj syreny alarmowe - link mapa](https://github.com/whatsupW/whatsupW/blob/main/img/7/maj4bombardowanie.jpg?raw=true)
 
 ![maj4bombardowanie](https://user-images.githubusercontent.com/101053692/167289051-1ca2f8cb-63f5-4793-a72c-160a22e0ffb4.jpg)
 
