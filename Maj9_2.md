@@ -41,6 +41,27 @@ Forest fires have been reported in 77 out of 83 regions in #Russia. The worst fi
 
 ![Pozary](https://user-images.githubusercontent.com/101053692/167291951-3cdb0547-be33-42a1-a9a0-5b785f150d76.jpg)
 
+
+[Pozary](https://github.com/whatsupW/whatsupW/blob/main/img/7/Pozary.jpg?raw=true)
+
+![Pozary](https://user-images.githubusercontent.com/101053692/167291951-3cdb0547-be33-42a1-a9a0-5b785f150d76.jpg)
+
+
+See how the society left behind by the hutin has to put out the fire on its own. 21st century and have no government support. Because the military is at war and parade. And Russia is on fire. Сильный Пожар. Уже сгорело 45 домов .Ураганный ветер. Город Заозёрный, Уяр. 7 мая 2022 https://www.youtube.com/watch?v=MyC7eIEiUHA And here you can see how Ukraine will appear during the special military action of Hutin. He doesn't care about people and buildings. His mir is hypocrisy. https://www.rusmir.com.ua/
+
+```
+Посмотрите, как общество, оставленное хутинами, вынуждено самостоятельно тушить пожар. 21 век и не имеют государственной поддержки. Потому что военные на войне и параде. И Россия горит. Сильный Пожар. Уже сгорело 45 домов ветер .Ураганный. Город Заозёрный, Уяр. 7 мая 2022 https://www.youtube.com/watch?v=MyC7eIEiUHA А здесь можно посмотреть, как будет выглядеть Украина во время спецоперации Гутина. Ему нет дела до людей и зданий. Его мир — лицемерие. https://www.rusmir.com.ua/
+```
+
+[Pozar - link](https://github.com/whatsupW/-/blob/main/1/head_Po%C5%BCary_w_Rosji_7_maja_2022_Syberia.jpg?raw=true)
+
+![head_Pożary_w_Rosji_7_maja_2022_Syberia](https://user-images.githubusercontent.com/101053692/167335979-c01ef27a-011d-49ed-a465-663cad7e5cdd.jpg)
+
+[RURMIR](https://github.com/whatsupW/-/blob/main/1/book.JPG?raw=true)
+
+![book](https://user-images.githubusercontent.com/101053692/167336003-c089c16b-d093-4986-b373-2177c71adbb8.JPG)
+
+
 ## Powrót do strony głównej
 
 https://github.com/whatsupW
