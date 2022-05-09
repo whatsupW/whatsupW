@@ -42,11 +42,6 @@ Forest fires have been reported in 77 out of 83 regions in #Russia. The worst fi
 ![Pozary](https://user-images.githubusercontent.com/101053692/167291951-3cdb0547-be33-42a1-a9a0-5b785f150d76.jpg)
 
 
-[Pozary](https://github.com/whatsupW/whatsupW/blob/main/img/7/Pozary.jpg?raw=true)
-
-![Pozary](https://user-images.githubusercontent.com/101053692/167291951-3cdb0547-be33-42a1-a9a0-5b785f150d76.jpg)
-
-
 See how the society left behind by the hutin has to put out the fire on its own. 21st century and have no government support. Because the military is at war and parade. And Russia is on fire. Сильный Пожар. Уже сгорело 45 домов .Ураганный ветер. Город Заозёрный, Уяр. 7 мая 2022 https://www.youtube.com/watch?v=MyC7eIEiUHA And here you can see how Ukraine will appear during the special military action of Hutin. He doesn't care about people and buildings. His mir is hypocrisy. https://www.rusmir.com.ua/
 
 ```
